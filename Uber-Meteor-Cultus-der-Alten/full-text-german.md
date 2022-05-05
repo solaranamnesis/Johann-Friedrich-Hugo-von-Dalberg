@@ -10,6 +10,8 @@
 
 ### 1811.
 
+![Cover Photograph](https://cdn.solaranamnesis.com/vonDalberg/cover.png)
+
 „Die Urzeit hat keine andere Geschichte hinter sich, als Naturgeschichte, in ihr ruht sicher auch die Mothe.“
 
 Görres Mythengeschichte der asiatischen Welt.
@@ -96,6 +98,12 @@ Wenn, wie ein trefflicher Schriftsteller* sagt: die Philosophie der Geschichte u
 
 ...
 
-## Kupfertafel
+## Verzeichniss der Abbildungen.
 
-...
+[Fig. 1.](https://cdn.solaranamnesis.com/vonDalberg/Fig1.png) - Titelkupfer. Rhea, die ihrem Gemahle dem Saturn den in Windeln gelegten Stein, statt des verfolgten Jupiters, zu verschlingen giebt. - Nach einer antiken _Ara_ aus dem _Mus. capitol_.
+
+[Fig. 2.](https://cdn.solaranamnesis.com/vonDalberg/Fig2.png) - Eine Cyprische Münze mit einem Conischen Idol oder dem Steingotte.
+
+[Fig. 3.](https://cdn.solaranamnesis.com/vonDalberg/Fig3.png) und [Fig. 4.](https://cdn.solaranamnesis.com/vonDalberg/Fig4.png) - Emesische Münze auf den Dienst des Helagabolus oder der Sonne deutend.
+
+[Fig. 4](https://cdn.solaranamnesis.com/vonDalberg/Fig4.png), [Fig. 5](https://cdn.solaranamnesis.com/vonDalberg/Fig5.png), [Fig. 6](https://cdn.solaranamnesis.com/vonDalberg/Fig6.png) - Münzen des ΖΕΥΣ ΚΕΡΑΥNIOΣ aus _Spanheim Dissert. de Numm. ant. Usu._
