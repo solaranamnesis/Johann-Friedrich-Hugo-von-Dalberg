@@ -106,4 +106,4 @@ Wenn, wie ein trefflicher Schriftsteller* sagt: die Philosophie der Geschichte u
 
 [Fig. 3.](https://cdn.solaranamnesis.com/vonDalberg/Fig3.png) und [Fig. 4.](https://cdn.solaranamnesis.com/vonDalberg/Fig4.png) - Emesische Münze auf den Dienst des Helagabolus oder der Sonne deutend.
 
-[Fig. 4](https://cdn.solaranamnesis.com/vonDalberg/Fig4.png), [Fig. 5](https://cdn.solaranamnesis.com/vonDalberg/Fig5.png), [Fig. 6](https://cdn.solaranamnesis.com/vonDalberg/Fig6.png) - Münzen des ΖΕΥΣ ΚΕΡΑΥNIOΣ aus _Spanheim Dissert. de Numm. ant. Usu._
+[Fig. 5](https://cdn.solaranamnesis.com/vonDalberg/Fig5.png), [Fig. 6](https://cdn.solaranamnesis.com/vonDalberg/Fig6.png), [Fig. 7](https://cdn.solaranamnesis.com/vonDalberg/Fig7.png) - Münzen des ΖΕΥΣ ΚΕΡΑΥNIOΣ aus _Spanheim Dissert. de Numm. ant. Usu._
