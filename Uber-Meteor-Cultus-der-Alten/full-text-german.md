@@ -187,351 +187,57 @@ Dies nun zu verfolgen, und den Zusammenhang der Steinverehrung mit dem Dienst de
 
 *) D. Münters Schrift über die Bätylien der Alten, in den Verhandlungen der gelehrten Gesellschaft von Koppenhagen.
 
-Welchen Ursprung jene merkwürdigen Massen
-auch haben mögen, die aus höheren Luftregionen
-theils einzeln, theils in zahlreicher Menge als
-Steinregen auf die Erde fallen; ob sis im Was-
-ser oder Feuer entstehen? ob, nach Chladni, sia
-als Theile zertrümmerter Weltkörper anzusehen
-sind, oder ob sie nach La Place dem Monde ent-
-fallen; nach Proust* und anderen hingegen
-in der Atmosphäre sich bilden, und wenn gleich
-sie sich in den uns bekannten Gegenden der Erde
-nicht finden, noch in ihnen finden können, doch
-Regionen unseres Erbkörpers, und zwar den un-
-ermeßlichen noch unbekannten Polargegenden ans
-gehören, von diesen losgerissen, und aufwärts
-geschleudert, in unsern südlichen Gegenden nieber-
-fallen; diese Erforschungen seien dem Physiker
-überlassen; Thatsache ist indessen, daß von den
-ältesten Zeiten her Meteor-Steine zur Erde fielen,
-denen man, wie die Geschichte lehrt, göttliche
-Verehrung bezeigte.
+Welchen Ursprung jene merkwürdigen Massen auch haben mögen, die aus höheren Luftregionen theils einzeln, theils in zahlreicher Menge als Steinregen auf die Erde fallen; ob sis im Wasser oder Feuer entstehen? ob, nach Chladni, sie als Theile zertrümmerter Weltkörper anzusehen sind, oder ob sie nach La Place dem Monde entfallen; nach Proust* und anderen hingegen in der Atmosphäre sich bilden, und wenn gleich sie sich in den uns bekannten Gegenden der Erde nicht finden, noch in ihnen finden können, doch Regionen unseres Erbkörpers, und zwar den unermeßlichen noch unbekannten Polargegenden ans gehören, von diesen losgerissen, und aufwärts geschleudert, in unsern südlichen Gegenden nieberfallen; diese Erforschungen seien dem Physiker überlassen; Thatsache ist indessen, daß von den ältesten Zeiten her Meteor-Steine zur Erde fielen, denen man, wie die Geschichte lehrt, göttliche Verehrung bezeigte.
 
 *) Gilbert Annalen der Physik Bd. 24. S. 261.
 
 Woher nun, fragt sich, entstand dieser Cultus?
 
-Folgende Hauptursachen lassen sich, glaube ich,
-hievon angeben:
+Folgende Hauptursachen lassen sich, glaube ich, hievon angeben:
 
-1) Wenn wir Hume's und Boulangers Idee*)2
-daß Furcht der Ursprung aller Religion
-sei, auch nicht unbedingt, beistimmen können,
-so zeigt die Geschichte unseres Geschlechts doch,
-wie Schrecken vor ungewöhnlichen Erscheinungen
-bei rohen sinnlichen Menschen den so natürlichen
-Glauben erzeugen konnte, daß Meteore und
-außerordentliche Phänomene von unsichtbaren hö-
-heren Wesen herrühren, die, indem sie ihren
-Wirkungen nach mehr zerstörender als mil-
-der Natur scheinen, man durch Gebethe, Sühn-
-opfer u. d. gl. sich geneigt machen müsse, ein
-Glaube, woraus der erste rohe Fetischismus her-
-vorging. Da nun öfters Meteor-Steine theile
-einzeln, theils in größerer Zahl aus höheren Res
-gionen herab fielen, war es natürlich, in ihnen
-die Kraft eines sie belebenden in Thätigkeit setzen-
-den höheren Wesens zu ahnen.
+1\. Wenn wir Hume's und Boulangers Idee*: daß Furcht der Ursprung aller Religion sei, auch nicht unbedingt, beistimmen können, so zeigt die Geschichte unseres Geschlechts doch, wie Schrecken vor ungewöhnlichen Erscheinungen bei rohen sinnlichen Menschen den so natürlichen Glauben erzeugen konnte, daß Meteore und außerordentliche Phänomene von unsichtbaren höheren Wesen herrühren, die, indem sie ihren Wirkungen nach mehr zerstörender als milder Natur scheinen, man durch Gebethe, Sühnopfer u. d. gl. sich geneigt machen müsse, ein Glaube, woraus der erste rohe Fetischismus hervorging. Da nun öfters Meteor-Steine theile einzeln, theils in größerer Zahl aus höheren Res gionen herab fielen, war es natürlich, in ihnen die Kraft eines sie belebenden in Thätigkeit setzenden höheren Wesens zu ahnen.
 
-*) Origine of Religion, in Hume's Works.
-Boulangers Amiquité devoilée.
+*) Origine of Religion, in Hume's Works.Boulangers _Antiquité dévoilée_.
 
-Eine 2te Ursache ist in der Physik und Kos-
-mologie der alten Völker zu suchen.
+Eine 2te Ursache ist in der Physik und Kosmologie der alten Völker zu suchen.
 
-Sterne wurden in der frühesten Zeit, ehe der
-Polytheism noch tiefer herab sank, als gött-
-liche Wesen verehrt, und ihrem Einflusse war alles,
-was irdisch ist, unterworfen. Diese Verehrung
-aber gründete sich auf die Meinung: vom Da-
-sein gewisser Mittelwesen, die (vermöge
-des Systems der Emanation) die ganze Kette
-der Intelligenzen, Genien, Daimonen
-bildeten, die ein Ausstrahl des unendlichen
-Lichtquells oder eine fortgehende Progression
-von Potenzen aus der Einheit sind; eine Lehre,
-die allen Völkern gemein war, und welche man in
-allen Mythologien wieder findet.
+Sterne wurden in der frühesten Zeit, ehe der Polytheism noch tiefer herab sank, als göttliche Wesen verehrt, und ihrem Einflusse war alles, was irdisch ist, unterworfen. Diese Verehrung aber gründete sich auf die Meinung: vom Dasein gewisser Mittelwesen, die (vermöge des Systems der Emanation) die ganze Kette der Intelligenzen, Genien, Daimonen bildeten, die ein Ausstrahl des unendlichen Lichtquells oder eine fortgehende Progression von Potenzen aus der Einheit sind; eine Lehre, die allen Völkern gemein war, und welche man in allen Mythologien wieder findet.
 
-In den frühesten Zeiten nahmen die Indier
-(wie die Purana lehren) gute und böse,
-himmlische, irdische und unterirdische
-Mittelwesen an *); diese Genien (Deiotas) ver-
-ändern nach Willkühr ihre Form, find als Vor-
-steher und Leiter über die Elemente und alle We-
-sen von den größten zu den kleinsten gesetzt, wie
-ihr Einfluß sich auch über alle Wesen verbreitet,
-weshalb die Schöpfung in 15 Regionen (Sourg)
-getheilt ward, die alle unter ihrer Gewalt stehen,
-und ihrem guten oder bösen Einfluß (da dieser
-Wesen es gute und schlimme gibt **)) unter-
-worfen sind. Sie bilden unter sich eine Hierarchie,
-an deren Spitze sieben Haupt Deiotas stehen,
-die die höheren Regionen leiten --- andere beherr-
-schen die Erde, Meere, Flüsse, Quellen, Berge
-und- Wälder; den sieben unteren Regionen (Lock
-genannt) sind wieder eben so vieh Gonien (böse,
-verderbende Wesen, die die reinen Geister betrü-
-en, ihnen jedoch gewissermaßen untergeordnet
-sind) vurgesetzt. --- Diesen Deiotas vollkommen
-ähnlich sind die sieben Amschaspands nebst den
-oberen und untergeordneten Ized s und Fer-
-vers des persischen Magismus; derhaldäer-
-sieben Fünten der oberen Welt; die sieben gött-
-lichen Thvongeister der Iuden und Sephiren
-der Cabbala, die sieben heiligen Laute der Egyp-
-ier), Orphiker und Pythagoräer; die Aeonen
-der Gnostiker, wie endlich überhaupt die aus älte-
-ren orientalischen Quesen fließende Daimonen-
-Lehre der Griechen, **) "Die Götter, sagt Plu-
-gtarch, mischen sich, und betreiben nicht selbst die
-"ahrsagungen, Beschwörungen u. d. gl., son-
-"dern die Daimonen als ihre Diener und Ge-
-"schäfisträger sssnn einige Aufseher der Opfer,
-"rsteher der Feste und Mysterien; andere gehen
-als Rächer des Uebemuths und der Ungirechtig-
-keit auf Erden uiher, andere sind gte- wohc
-thätige Geister."
+In den frühesten Zeiten nahmen die Indier (wie die Purana lehren) gute und böse, himmlische, irdische und unterirdische Mittelwesen an*; diese Genien (Deiotas) verändern nach Willkühr ihre Form, find als Vorsteher und Leiter über die Elemente und alle Wesen von den größten zu den kleinsten gesetzt, wie ihr Einfluß sich auch über alle Wesen verbreitet, weshalb die Schöpfung in 15 Regionen (Sourg) getheilt ward, die alle unter ihrer Gewalt stehen, und ihrem guten oder bösen Einfluß (da dieser Wesen es gute und schlimme gibt*) unterworfen sind. Sie bilden unter sich eine Hierarchie, an deren Spitze sieben Haupt Deiotas stehen, die die höheren Regionen leiten --- andere beherrschen die Erde, Meere, Flüsse, Quellen, Berge und- Wälder; den sieben unteren Regionen (Lock genannt) sind wieder eben so vieh Gonien (böse, verderbende Wesen, die die reinen Geister betrüen, ihnen jedoch gewissermaßen untergeordnet sind) vurgesetzt. --- Diesen Deiotas vollkommen ähnlich sind die sieben Amschaspands nebst den oberen und untergeordneten Ized s und Fervers des persischen Magismus; derhaldäersieben Fünten der oberen Welt; die sieben göttlichen Thvongeister der Iuden und Sephiren der Cabbala, die sieben heiligen Laute der Egypier), Orphiker und Pythagoräer; die Aeonen der Gnostiker, wie endlich überhaupt die aus älteren orientalischen Quesen fließende Daimonen-Lehre der Griechen, **) "Die Götter, sagt Plugtarch, mischen sich, und betreiben nicht selbst die ahrsagungen, Beschwörungen u. d. gl., sondern die Daimonen als ihre Diener und Geschäfisträger sssnn einige Aufseher der Opfer, rsteher der Feste und Mysterien; andere gehen als Rächer des Uebemuths und der Ungirechtigkeit auf Erden uiher, andere sind gute wohlthätige Geister."
 
-*) Trefflich entwickelt und zusammengestellt findet
-man die indische Emanations-Lehre in v. Pol-
-liers Mythologie des Indous. T. II. Ch. 1.
-13. 14.
+*) Trefflich entwickelt und zusammengestellt findet man die indische Emanations-Lehre in _v. Polliers Mythologie des Indous. T. II. Ch. 12. 13. 14._
 
 *) Daher weise und schwarze Magie.
 
-*) Hievon Jablonsly Panth. Aegypt. Proleg. p.
-3. -- Tend a esta. -- Die heiligen Bücher
-. und rabinischen Schriften.-
+*) Hievon _Jablonsky Panth. Aegypt. Proleg. p. 53._ -- _Zend a esta._ -- Die heiligen Bücher und rabinischen Schriften.
 
-*) Mit welchen auch hie uordischen Mythen überein-
-ßiimmen.
+*) Mit welchen auch hie uordischen Mythen übereinstimmen.
 
-Wie man nun glaubee,* daß diess Mittel-
-wesen det Plaeten Gestirnen ndd Gementen
-vörstünden, hielt man auch dafür, dagncht alleint
-Untergötter, sondern selbst ausgezeichnie Min-
-schen (Heroen) in Sterne vetwandelt würden,
-und als solche am Himmel glänzten, aber da sis
-nicht unfehlbat wären, wegen vergangenes
-Verbrechen ihren Glanz auch wieder verlieren und-
-herab sinken könnten, daher der Glaube, daß
-Sterne belebt seien, und zuweiten auf
-die Erde herabfielen. Der alten Physik
-gemäß hielt man Sterne für Feuetmassen,*
-und da ihre eigentliche Geöße in jener früheren
-Zeit nbch nicht hinlänglich berechnet war, schien
-nichts weniger als ungereimt, daß, sobald ihr
-Glanz (d. h. der sie regierende Geist) etlosch,
-sie zur Erde sinken konnten. Der gefallene
-Stern war ein verwandelter entflohed
-ner Daimon, unb det glühend herab
-gefalline Stein ein erlsschener Stern.*
+Wie man nun glaubee,* daß diess Mittelwesen det Plaeten Gestirnen ndd Gementen vörstünden, hielt man auch dafür, dagncht alleint Untergötter, sondern selbst ausgezeichnie Minschen (Heroen) in Sterne vetwandelt würden, und als solche am Himmel glänzten, aber da sis nicht unfehlbat wären, wegen vergangenes Verbrechen ihren Glanz auch wieder verlieren undherab sinken könnten, daher der Glaube, daß Sterne belebt seien, und zuweiten auf die Erde herabfielen. Der alten Physik gemäß hielt man Sterne für Feuetmassen,* und da ihre eigentliche Geöße in jener früheren Zeit nbch nicht hinlänglich berechnet war, schien nichts weniger als ungereimt, daß, sobald ihr Glanz (d. h. der sie regierende Geist) etlosch, sie zur Erde sinken konnten. Der gefallene Stern war ein verwandelter entflohed ner Daimon, unb det glühend herab gefalline Stein ein erlsschener Stern.*
 
-*) Plutarch über den Verfall der Orakel."
+*) Plutarch über den Verfall der Orakel.
 
-*) Rach Anatagoras, Demokrit und. Meteadorus
-war die Sonne ein feuriger Klnen, pder ein
-glühender Stein: so der Mond eine feste glühende
-Masse, nnd die Sterne, nach Dogenes, glühende
-Steine, die oft zur Erde herab fielen ild b da ver-
-loschen. Plutarch. de Placit. Philos.
+*) Nach Anaxagoras, Demokrit und Meteadorus war die Sonne ein feuriger Klnen, pder ein glühender Stein: so der Mond eine feste glühende Masse, nnd die Sterne, nach Dogenes, glühende Steine, die oft zur Erde herab fielen ild b da verloschen. Plutarch. de Placit. Philos.
 
-Eine Ste Ursache der Verehrumg, die man so-
-genannten heiligen Steinen bezeigte, ist in
-dem Gebrauch und ber Anwenbung, den
-man von denselben zu öffentlichen Denkmalen und
-Merkzeichen machte, gegründet. Bevor wir nun
-zl nühtren Bettachtung der Aerolithen-Vereh-
-mig übergshen, wird es nichs überflüsfig sein,
-einen näheron Bück auf. Entstehung des Stein-
-Cultis überhaupt zu merfen.
+Eine Ste Ursache der Verehrumg, die man sogenannten heiligen Steinen bezeigte, ist in dem Gebrauch und ber Anwenbung, den man von denselben zu öffentlichen Denkmalen und Merkzeichen machte, gegründet. Bevor wir nun zur nühtren Bettachtung der Aerolithen-Verehmig übergshen, wird es nichs überflüsfig sein, einen näheron Bück auf. Entstehung des Stein-Cultis überhaupt zu merfen.
 
-*) Les orientaux eroyoient, que les Anges sont
-des Esprits ignées, opinlon, qui passa
-: depuis ohee las Ckekiens, ek i je ne-
-me tromps, 'pit pommumquee aux juifs
-longtems auparavant. Beausobre Hist.
-du Manichetsine. .. . 323.
+*) _Les orientaux croyoient, que les Anges sont des Esprits ignées, opinion, qui passa depuis chez les Chretiens, et qui, si je neme trompe, s'etoit communiquee aux juifs longtems auparavant. Beausobre Hist. du Manicheisme. T. I. p. 323._
 
-In jenem Weltalter, wo Sinnbilder, Schrift-
-züge, Buchstaben noch nicht erfunden maren, und
-rohe Menschen keine anderen als gleichfalls rohe
-Werkzeuge hatten, ihre Ideen aufuuzeichnen,
-mußten Steine als Merkzeichen vorzüglicher Er-
-eignisse, die zugleich als Vereinigungspunkt bei
-feierlichen Handlungen und Verträgen, oder als
-Grenzbezeichnungen dienen konnten, eine Achtung
-gewinnen, die allmählich bis zur Vergötterung
-erhöht ward, und durch den geheimen Sinn, den
-spätere Mysterien, Priester, Hierophanten die-
-sen Gegenständen beilegten, eine noch höhere
-Verehrung erhalten.
+In jenem Weltalter, wo Sinnbilder, Schriftzüge, Buchstaben noch nicht erfunden maren, und rohe Menschen keine anderen als gleichfalls rohe Werkzeuge hatten, ihre Ideen aufuuzeichnen, mußten Steine als Merkzeichen vorzüglicher Ereignisse, die zugleich als Vereinigungspunkt bei feierlichen Handlungen und Verträgen, oder als Grenzbezeichnungen dienen konnten, eine Achtung gewinnen, die allmählich bis zur Vergötterung erhöht ward, und durch den geheimen Sinn, den spätere Mysterien, Priester, Hierophanten diesen Gegenständen beilegten, eine noch höhere Verehrung erhalten.
 
-Aus dem häuslichen Feuerheerde, der. bei
-jedem Volke im nomadischen Zeitalter in der Mitte
-des Zeltes stehend, die Familien zu gemeinsamen
-Verrichtungen, Gebethen, traulichen Gesprächen
-sammelte, und ihnen darum so heilig war, als
-ihre Laren, entstand der Vesta-Dienst, und mit
-ihm die Bewahrung des reinen Feuers, auf
-dem allgemeinen Heerde oder Steinaltar, als
-dem Mittelpunkte des ganzen Staates. So ging
-äus dem frühen Gebrauch roher, zuerst unförm-
-icher, dann gehausner viereckiger, endlich mit
-Kopf und menschlichen Gliedmaßen versehenen
-Steinen (woraus allmählich die Bildsäulen ent-
-standen) der Dienst des Jupiter lapis oder
-horcus *), des Terminus, Pales, der
-Aecker, Gärten und Weg- Genien,
-Hauslaren und Hermen hervor."Die
-"Griechen, sagt Pausanias Buch VII. verehrten
-"anfänglich rohe Steine statt Götter." So stellte,
-gleichfalls nach Pausanias Buch IX. K. 24. 27.
-ein bloßer Stein in Böotien den Herkules, zu
-Thespis den Cupido, zu Orchomenos die Gra-
-zien, zu Theben den Bacchus, und nach He-
-rodian zu Payhos die Venus in der Gestalt eines
-Ecksteins oder einer Pyzamide vor. *) Ein Bei-
-syiel zeigt die Münzo Iaus Vaillaut Num. Graec
-Imp. Tab. IV. No. 14., die ein Konisches
-Idol mit 2 Tauben und Leuchtern aus der Insel
-Cypern (wo der Venus-Dienst herrschte) vor-
-stellt. Auch bei den Merikanern findet sich
-nebst dem Elementen-Dienste die Verehrung der
-Bätylien vder heiligen Steine; merkwürdig ist die
-Nachricht, welche Alerander van Humbold im
-nten Hefte des Corlieres; Seite 94,
-vn der Gottheit der Toltequos gibt: ihr vor-
-gnehmster-Gett hieß Tlalorteuctli, er war
-"zugleich Gett des Wassers, der Berge, und des
-"Gewitters. Diesem Bergvalke waren die hohen
-"in stete Nebek gehüllten Gipfel der Gebirge der
-"geheimnißvolle Ort, auf dem der Donner
-"erzeugt wird. Dahin versetzten sie den Thron
-"des großen Geistes Teotl, jenes unsichtbare
-"Wesen Ipalnemoani, und Tloqus Nahuaque
-genannt, weil er nur durch sich selbsten
-"ist, und sich allein umschließt. Von
-"dieser kaum ersteiglichen Höhe herab kömmt
-"der Orkan sowohl, der die friedlichen Hütten
-izerstört, als der wohlthätige Regen, der die
-"Felder erquickt. Auf einem der höchsten Berge
-"hatten die Tolteques dem Gotte Tlalocteuctli eine
-"Bildfäule errichtet, aus einem-wiß en Stei-
-"ne, den sie süs göttlich hielten (taotetl),
-"nur roh war sie aasgehauen, deim dieses Volk,
-"ähnlich darin den Ovientalen, hatte abergläubige
-"Verehrung für gewisse Farben der Steinn. Vor-
-"gestellsmard diese Gottheit mit dem Blitz und
-"Donneikeil in der-Hand, auf einem cubusfün
-"migen Stein sitzand, eine Vase vor sich gestellt,
-"worinne man ihm Caoutchoue und verschiedene
-"Erdsamen opferte. Derselbe Cultus findet sich
-"bei den Aztdquen, die ihn bis zum Iahra317
-"der christlichen Zeitrechnung beibehielten,o der
-"Krieg, den sie mit den Einwohnern der Stadt
-"ochimileo führten, die erste Veranlassung zur
-"Einführung der Menschenopfer ward."
+Aus dem häuslichen Feuerheerde, der. bei jedem Volke im nomadischen Zeitalter in der Mitte des Zeltes stehend, die Familien zu gemeinsamen Verrichtungen, Gebethen, traulichen Gesprächen sammelte, und ihnen darum so heilig war, als ihre Laren, entstand der Vesta-Dienst, und mit ihm die Bewahrung des reinen Feuers, auf dem allgemeinen Heerde oder Steinaltar, als dem Mittelpunkte des ganzen Staates. So ging äus dem frühen Gebrauch roher, zuerst unförmicher, dann gehausner viereckiger, endlich mit Kopf und menschlichen Gliedmaßen versehenen Steinen (woraus allmählich die Bildsäulen entstanden) der Dienst des Jupiter lapis oder horcus *), des Terminus, Pales, der Aecker, Gärten und Weg- Genien, Hauslaren und Hermen hervor."Die Griechen, sagt Pausanias Buch VII. verehrten anfänglich rohe Steine statt Götter." So stellte, gleichfalls nach Pausanias Buch IX. K. 24. 27. ein bloßer Stein in Böotien den Herkules, zu Thespis den Cupido, zu Orchomenos die Grazien, zu Theben den Bacchus, und nach Herodian zu Payhos die Venus in der Gestalt eines Ecksteins oder einer Pyzamide vor. *) Ein Beisyiel zeigt die Münze _Iaus Vaillaut Num. Graec. Imp. Tab. IV. No. 14._, die ein Konisches Idol mit 2 Tauben und Leuchtern aus der Insel Cypern (wo der Venus-Dienst herrschte) vorstellt. Auch bei den Merikanern findet sich nebst dem Elementen-Dienste die Verehrung der Bätylien vder heiligen Steine; merkwürdig ist die Nachricht, welche Alerander van Humbold im nten Hefte des Corlieres; Seite 94, vn der Gottheit der Toltequos gibt: "ihr vornehmster-Gett hieß Tlalorteuctli, er war zugleich Gett des Wassers, der Berge, und des Gewitters. Diesem Bergvalke waren die hohen in stete Nebek gehüllten Gipfel der Gebirge der geheimnißvolle Ort, auf dem der Donner erzeugt wird. Dahin versetzten sie den Thron des großen Geistes Teotl, jenes unsichtbare Wesen Ipalnemoani, und Tloqus Nahuaque genannt, weil er nur durch sich selbsten ist, und sich allein umschließt. Von dieser kaum ersteiglichen Höhe herab kömmt der Orkan sowohl, der die friedlichen Hütten zerstört, als der wohlthätige Regen, der die Felder erquickt. Auf einem der höchsten Berge hatten die Tolteques dem Gotte Tlalocteuctli eine Bildfäule errichtet, aus einem-wiß en Steine, den sie süs göttlich hielten (taotetl), nur roh war sie aasgehauen, deim dieses Volk, ähnlich darin den Ovientalen, hatte abergläubige Verehrung für gewisse Farben der Steinn. Vorgestellsmard diese Gottheit mit dem Blitz und Donneikeil in der-Hand, auf einem cubusfün migen Stein sitzand, eine Vase vor sich gestellt, worinne man ihm Caoutchoue und verschiedene Erdsamen opferte. Derselbe Cultus findet sich bei den Aztdquen, die ihn bis zum Jahr 1317 der christlichen Zeitrechnung beibehielten,o der Krieg, den sie mit den Einwohnern der Stadt ochimileo führten, die erste Veranlassung zur Einführung der Menschenopfer ward."
 
-*) Auch des 2T KAAox ober Fulmi-
-natoris, dessen Dienst in den ältesten Zeiten schon
-herrschend war, und dem Seleucus Nicator,
-als er die Stadt Seleucia am Meer erbante, un-
-ter dem Symbol des Blitzes Tempel und Altäre
-errichtete, wie besonders eine Münze dieses Kö-
-nigs zeigt, auf deren Rückseite sich ein beflügelter
-Donnerkeil befindet. S. Spanheim de
-Praestantia et Usu Numm. antiq. p. 33.
-Zwei andere Münzen in demselben Werke zeigen
-den beflügelten Blitz auf einem Tische oder
-Altare liegend; s. Kupfertafel No. 6, 7, 8.
+*) Auch des 2T KAAox ober _Fulminatoris_, dessen Dienst in den ältesten Zeiten schon herrschend war, und dem Seleucus Nicator, als er die Stadt Seleucia am Meer erbante, unter dem Symbol des Blitzes Tempel und Altäre errichtete, wie besonders eine Münze dieses Königs zeigt, auf deren Rückseite sich ein beflügelter Donnerkeil befindet. S. _Spanheim de Praestantia et Usu Numm. antiq. p. 393._ Zwei andere Münzen in demselben Werke zeigen den beflügelten Blitz auf einem Tische oder Altare liegend; s. Kupfertafel No. 6, 7, 8.
 
-*) Von diesem letzten sind die Nachrichten zu unsicher,
-um bestimmt zu sagen, daß er ein Meteor-Stein
-gewesen, so von mehreren anderen, z. B. dem
-Stein des Jupiter Caseos, der Diana im Tem-
-pel zu Laodicäa - (von dem Eckhel in Mus.
-Caesar. Abbildung auf Münzen anführt) vom
-Stein im Tempel zu Perga, zu Calchis in Sy-
-rien, zu Flavia Neapolis (dem alten Sichem)
-s. gleichfalls Eckhel und Pellerin Recueil de
-Medailles, und andere mehr; aber von jenem
-zu Orchomenas sagt Pausanias XI. C. 38. und
-IX. 25. bestimmt, daß er vor dem trojanischen
-Kriege zu Zeiten des Königs Eteokles vom Him-
-mel gefallen.
+*) Von diesem letzten sind die Nachrichten zu unsicher, um bestimmt zu sagen, daß er ein Meteor-Stein gewesen, so von mehreren anderen, z. B. dem Stein des Jupiter Caseos, der Diana im Tempel zu Laodicäa - (von dem Eckhel in _Mus. Caesar._ Abbildung auf Münzen anführt) vom Stein im Tempel zu Perga, zu Calchis in Syrien, zu Flavia Neapolis (dem alten Sichem) s. gleichfalls Eckhel und _Pellerin Recueil de Medailles_, und andere mehr; aber von jenem zu Orchomenas sagt Pausanias XI. C. 38. und IX. 25. bestimmt, daß er vor dem trojanischen Kriege zu Zeiten des Königs Eteokles vom Himmel gefallen.
 
-Bemerkenswerth ist die Analogie dieses mexika-
-nischen Stein-Gottes mit dem Aagabal der- Sy-
-rer, dem schwarzen Stein der Caaba, dem Alas-
-ovid, Abadir, Desares der arabischen Stämme,
-von denen wir später teden werden. Wenn es
-überhaupt scheint (wie Hr. v. Humbold aus
-wahrscheinlichen Gründen zeigt), das die Natio-
-nen, welche Amerika bevölkern, sich frühgeitig
-vom erstan Wohnsitze des Menschengeschlechts ent-
-fernt, und ihrer eigenen Leitung überlassen, lange
-herumirrend, allen Uebeln und Unbequemlichkeiten
-eines herumirrenden Lebens unterworfen, sich spä-
-ter entwickekn, undezu einem höheren Grade von
-Cultur erheben konntenu so finden sichebei ihnen
-dagegen d Spuren des ursprünglichen Natur-
-Cultus, wie früher bei den Völkern des
-alten Cöntinents in seiner primitiven Form wie-
-der. Wir dürfen z. B. nur die Zwergenähnliche
-Basalt-Büste der mexikanischen Priesterin im
-I. Hefte des Humboldischen Atlas pittoresque
-(die doch eher eine merikanische Haus-oder Schutz-
-Gottheit zu sein scheint), wie überhaupt die mei-
-sten monströsen Abbildungen der Aztequischen
-Gottheiten anblicken, so zeigen sie eine auffallende
-Aehnlichkeit mit jenenphönizischen und alt-
-egyptischen zwergartigen Götterchen, welche
-Herodot unter dem Namen Patäcken erwähnt,
-und die als Schutzgötter in Tempel und Vorhal-
-len gestellt wurden.
+Bemerkenswerth ist die Analogie dieses mexikanischen Stein-Gottes mit dem Aagabal der- Syrer, dem schwarzen Stein der Caaba, dem Alasovid, Abadir, Desares der arabischen Stämme, von denen wir später teden werden. Wenn es überhaupt scheint (wie Hr. v. Humbold aus wahrscheinlichen Gründen zeigt), das die Nationen, welche Amerika bevölkern, sich frühgeitig vom erstan Wohnsitze des Menschengeschlechts entfernt, und ihrer eigenen Leitung überlassen, lange herumirrend, allen Uebeln und Unbequemlichkeiten eines herumirrenden Lebens unterworfen, sich später entwickekn, undezu einem höheren Grade von Cultur erheben konntenu so finden sichebei ihnen dagegen d Spuren des ursprünglichen Natur-Cultus, wie früher bei den Völkern des alten Cöntinents in seiner primitiven Form wieder. Wir dürfen z. B. nur die Zwergenähnliche Basalt-Büste der mexikanischen Priesterin im I. Hefte des Humboldischen Atlas pittoresque (die doch eher eine merikanische Haus-oder Schutz-Gottheit zu sein scheint), wie überhaupt die meisten monströsen Abbildungen der Aztequischen Gottheiten anblicken, so zeigen sie eine auffallende Aehnlichkeit mit jenenphönizischen und altegyptischen zwergartigen Götterchen, welche Herodot unter dem Namen Patäcken erwähnt, und die als Schutzgötter in Tempel und Vorhallen gestellt wurden.
 
-Ueberhaupt war im Alterthume der Glaube
-horrschend, daß die Gottheit ihr Bildniß selbst oft
-vom Himmel zur Erde gesandt habe,
-es mag nun dieses aus Stein oder einem andern
-Stoffe bestanden haben, so jenes der Diana von
-Ephesos, welches nach Plinius Zeugniß *) aus
-Weinstock geschnitzt, und täglich md Rarden ges
-tränkt murde, um die Gliederfügungen beweglich
-zu erhalten, daß es für ein vom Himmel gefalle-
-nes Bild galt, älter sogar als Barchus und Mi-
-nerva, wie Plinius versichert, zeigen die Worte
-in der Apostelgeschichte*): "Ihr Bürger von
-"Ephesus! ist denn irgend eiu Mensch
-"auf der Welt, der nichtweiß, daßdie
-Stadd. Ephesos die Dienerin des
-"Tempelsder Diana, und des vom
-"Himmel herab gefallenen Bildes
-"ist?*
+Ueberhaupt war im Alterthume der Glaube horrschend, daß die Gottheit ihr Bildniß selbst oft vom Himmel zur Erde gesandt habe, es mag nun dieses aus Stein oder einem andern Stoffe bestanden haben, so jenes der Diana von Ephesos, welches nach Plinius Zeugniß *) aus Weinstock geschnitzt, und täglich md Rarden ges tränkt murde, um die Gliederfügungen beweglich zu erhalten, daß es für ein vom Himmel gefallenes Bild galt, älter sogar als Barchus und Minerva, wie Plinius versichert, zeigen die Worte in der Apostelgeschichte*): "Ihr Bürger von Ephesus! ist denn irgend eiu Mensch auf der Welt, der nichtweiß, daßdie Stadd. Ephesos die Dienerin des Tempels der Diana, und des vom Himmel herab gefallenen Bildes ist?"
 
 *) Nat. Gesch. Buch XVI. Kap. 77.
 
-Jedes Volk hatte in denMitte seines Versamm-
-lungsortes einen solchen Stein als Symbol seiner
-Einheit (rno roe eorn), einen Local-Schutz-
-gott. (dsgo ozodecror), und der Gott
-einen ihm dienenden Priester, nebst einem Hause
-(das später zum Tempel ward). Mit diesem
-rohen uralten Fetischismus verband sich frühzeitig
-ein geheimer Sinn, den die Priester und Myste-
-rien bem Stein als Symbol beilegten *), und
-indesson das vohe VolkimexoterischenDieni
-ste seinen Fetisch, den rohen Holz-oder Stein-
-Block nergötterte, deutete die geheimere Einwei-
-hung denselben als Darstellung und Symbol einer
-mächtigen Naturkraft, nämlich als Bild der Zeu-
-g ung und der sich stets erneuernden Zeit,
-woher im frühesten Zeitalter der Lingam-Stein
-entstand, der mit der Tradition durch alle Cultus
-gehet. **)
+Jedes Volk hatte in denMitte seines Versammlungsortes einen solchen Stein als Symbol seiner Einheit (rno roe eorn), einen Local-Schutzgott. (dsgo ozodecror), und der Gott einen ihm dienenden Priester, nebst einem Hause (das später zum Tempel ward). Mit diesem rohen uralten Fetischismus verband sich frühzeitig ein geheimer Sinn, den die Priester und Mysterien bem Stein als Symbol beilegten *), und indesson das vohe VolkimexoterischenDieni ste seinen Fetisch, den rohen Holz-oder Stein-Block nergötterte, deutete die geheimere Einweihung denselben als Darstellung und Symbol einer mächtigen Naturkraft, nämlich als Bild der Zeug ung und der sich stets erneuernden Zeit, woher im frühesten Zeitalter der Lingam-Stein entstand, der mit der Tradition durch alle Cultus gehet.*
 
 *) Kap. XIX.
 
