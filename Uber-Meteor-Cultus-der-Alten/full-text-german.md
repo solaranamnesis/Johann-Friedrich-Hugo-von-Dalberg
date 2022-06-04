@@ -260,694 +260,105 @@ Dieser Lingam oder Phallus-Dienst war jedoch in seinem Ursprunge nicht so unrein
 
 *) S. das Titelkupfer nach einer antiken Ara im Museo Capitolino.
 
-Von der ursprünglichen Deutung des Steins
-auf Zeit kommen die Mahl- oder sogenannten
-Rechensteine; im Hermes (von dem alle Zeitrech-
-nung kam) wurden sie in ganzen Haufen zusam-
-men gelesen, die souses ober eousoo eios-
-hießen *), der Cultus vergaß den Ursprung der.
-heiligen Sitte, und jeder Wanderer legte zu dem
-Haufen noch einen neuen Stein. In Arabien
+Von der ursprünglichen Deutung des Steins auf Zeit kommen die Mahl- oder sogenannten Rechensteine; im Hermes (von dem alle Zeitrechnung kam) wurden sie in ganzen Haufen zusammen gelesen, die souses ober eousoo eioshießen *), der Cultus vergaß den Ursprung der. heiligen Sitte, und jeder Wanderer legte zu dem Haufen noch einen neuen Stein. In Arabien erhielt sich die Sitatlange nach Muhameds Zeiten und die Geschichte der Erzväter erwähntdiesen Gebiauch. Dhhn önnen wir auch die 360 Steine gefäße der agyptischen Priester auf der Nilinseh nächst Philoe rechnen, mittelst welchen ßie, inden sie selbe bei jedesmaligen Wisderbegianen des bürgerlchm Jahres anfülten, die Zeit- oder Zahl ihrer Iahresmgo anzeigten.
 
-*) Kanne allgemeine Mythologie..
+*) Kanne allgemeine Mythologie.
 
-erhielt sich die Sitatlange nach MuhamedZei-
-ten und die Geschichte der Erzväter erwähntdiesen
-Gebiauch. Dhhn önnen wir auch die 360 Steine
-gefäße der agyptischen Priester auf der Nilinseh
-nächst Philoe rechnen, mittelst welchen ßie, inden
-sie selbe bei jedesmaligen Wisderbegianen des
-bürgerlchm Iahris anfülten, die Zeit- oder Zahl
-ihrer Iahresmgo anzeigten. . :
+Bündniß, Vertrge und Eide wurden daher stets an solchen Steinen geheiligt. So hatts dor Libanon einen Hügel, derwiet Jacobs Steins hause y7z Gitad (hieh.. Dmn Ursprung den Sitten, beiStinen-zu schwöeen, deutes selbst de Wurzel-der Sptache an. So heißtl Tyy häufen, und n ein hrer Stein. 1ymd Zöugns geben, y Zeuge, welches in berGrund bedeutüng Zeit, Zeugung und- Feuer-häßte uns in der Zusalneisetzanh Gileat 7 somoh. Stinhälife des Ze gnisse s,ls der Zebt bedeutet.
 
-Bündwöß, Vertrge undEide wurden
-daher stets an solchen Steinen geheiligt. So hatts
-dor Libanon einen Hügel, derwiet Jacobs Steins
-hause y7z Gitad (hieh.. Dmn Ursprung den
-Sitten, beiStinen-zu schwöeen, deutes selbst
-de Wurzel-der Sptache an. So heißtl Tyy
-häufen, und n ein hrer Stein. 1ymd
-Zöugns geben, y Zeuge, welches in berGrund-
-bedeutüng Zeit, Zeugung und- Feuer-häßte
-uns in der Zusalneisetzanh Gileat 7 somoh.
-Stinhälife des Ze gnisse s,ls der Zebt be-
-deutet.
+*) S. Phamenophis. S. 96.
 
-*) S. Phamenophisl- S. 96. 4
+Diose Einleitung führt uns auf nähete Erfonschung des Stoffes und inseren Gehalts sener Steine, die man im Alterthume zu religiösen oder dem gemeinen Wesen dienlichen Zwecken gebrauchte, und darum für brsonders heilig hielt. Hier sprechen. nun alle Zeugnisse, daß, wo nicht alle, doch gewiß eine naße Zahl derselben wahre Aerolithen gewesen, dren Beschreibung ganz mit jener übereinstimmt, die uns die Physiker von den in spätenen Zeiten gefallenen Meteor-Steinan geben. Die Rinden dieser Steine (sagt Reuß *) sind dunkelschwarz, stellenwis ins Braune ziehender Farbe, theils matt, theils schwach schimmernd, und an den sammetschwarzen Stellen non Pech-, an andern von schwachem Metallglanze; sie zeigen zahlreiche größere und kleinere Eindrücke und Erhabenheian, wie sie ein weicher dehnharer Körper annimmt, wenn man ihn mit dem Finger dehnt oder kratzt. Sie fühlen sich im Ganzen ziemlich glatt, nur hie und da etwas rauh an. In Hinsicht ihrer schwarzen Kruste bemerkt man zwar Verschiedenheit, einige sind dunkelschwarz, andere haben ein pechartig metallisches schwach schimmerndes Ansehen, und sind etwas mürbe; dieser Verschiedenheit ungeachtet ist doch ihre Gleichartigkeit icht zu verkennen, und man bemerkt beim ersten Anblick derselben ihre Abstammung aus höheren Regionen. Ihre vorzüglichen Bestandtheile sind, nach Klaproths neuester Untersuchung *): Eisen, Nickel, zuweilen Chromium, Mangan, Kiesel-Erde, Bittersalz-Erde, Alaun-Erde, Kalk, Schwefel, wovon (wie er hinzusetzt) das Eisen als gediegen anzunehmen. Dieses metallischen Eisens wegen wirken auch die Aerolithen stärker oder schwächer auf die Magnetnadel, und werden von ihr angezogen.
 
-Diose Einleitung führt uns auf nähete Erfon-
-schung des Stoffes und inseren Gehalts
-sener Steine, die man im Alterthume zu reli-
-giösen oder dem gemeinen Wesen dienlichen
-Zwecken gebrauchte, und darum für brsonders
-heilig hielt. Hier sprechen. nun alle Zeugnisse,
-daß, wo nicht alle, doch gewiß eine naße Zahl
-derselben wahre Aerolithen gewesen, dren Be-
-schreibung ganz mit jener übereinstimmt, die uns
-die Physiker von den in spätenen Zeiten gefallenen
-Meteor-Steinan geben. Die Rinden die-
-ser Steine (sagt Reuß *) sind dunkelschwarz,
-stellenwis ins Braune ziehender Farbe, theils
-matt, theils schwach schimmernd, und an den
-sammetschwarzen Stellen non Pech-, an andern
-von schwachem Metallglanze; sie zeigen zahlreiche
-größere und kleinere Eindrücke und Erhabenhei-
-an, wie sie ein weicher dehnharer Körper an-
-nimmt, wenn man ihn mit dem Finger dehns
+*) Ueber den Steinregen bei Lissa, im Iournal der Chemie, Physik und Mineralogie, 8. Band 2. Heft S. 457.
 
-*) Ueber den Steinregen bei Lissa, im
-Iournal der Chemie, Physik und Minera-
-logie, s. Band 2. Heft S. 47.
+Wie verschieden dieselben in ihrem Gewichte seien, ist daraus abzunehmen, daß man Steine von der keinen Dimension eines Zolls bis auf Massen von 3 bis 400 Pfund, ia selbst von 14 Zentnern (wie jener berühmte Eisenstein, der in Sibyrien niederfiel) kennt. *) Unbestimmt ist ihre Form und Zahl; bald zugerundet-eiförmig, mit Ecken und Kanten; in der Mitte eingedrückt, mehrseitig, pyramidalförmig, an den Seiten abgestumpft, oft ganz kugelrund u. s. f. Gleichverschieden sind sie an Zahl, und in den ihren Fall begleitenden Nebenumständen, indem sie theils einzeln, theils in geringer Zahl, theils als förmlicher Regen (der Steine auf Meilenwegs umher streut, welche Hügel und kleine Berge bilden, wie kürzlich zu L'aigle in der Normandie **); bald fallen sie bei ganz heiteren Tagen, bald bei stürmischem wolkigtem Himmel, aber immer (sags Reuß) ist beim Herabfallen ein außerordentliches Getöse zu hören, das mit einem Knalle aus Kanonen, Pelotonfeuer, Wirbeln auf Trommeln, türkischer Musik, einem orgelähnlichen Pfeifen und Sausen in den höheren Luftregionen verglichen wurde; und in vielen, ja den meisten Fällen bemerkte man dabei eine Richtung von Südwest nach Nordost, so daß die nördlichsten Steine zuerst, die südlichen zuletzt niederfielen. *) Neuere Berichte erzählen die außerordentliche Wirkung solcher Phänomene auf die Gemüther der Augenzeugen. Ein Meteor dieser Art kam im I. 1789 über eine Gegend unweit Worms, woselbst ich mich auf einem, meiner Familie gehörigen Schlosse befand. Im Sommer bei heiterem ganz wolkenlosem Himmel entstand gegen Abendzeit ein immer zunehmendes Rauschen in der Luft, das nicht sowohl dem Rollen des Donners, als dem lärmenden Zug eines Kriegsheeres- zu vergleichen war, und immer zunahm, je näher es unserem Wohnsitze kam. Die erschrockenen Landleute, die eben noch auf dem Felde waren, liefen, ein nahes Unglück ahnend, ihren Häusern zu, indessen das unsichtbare Meteor (ohne Schaden zuzufügen) über unsere Häupter hinrollte; alle Bewohner des Schlosses vernahmen dessen wunderbare Laute; aber unter den Anwesenden befand sich keiner im Falle, dies Phänomen gleich nach seiner Erscheinung zu verfolgen; erst nach einiger Zeit erfuhr man, daß eine Feuerkugel nicht fern des Ortes niedergefallen sei, nach der man sich gleichfalls nicht weiter umsah, die aber, den seither über Aerolithen bekannten Thatsachen nach, unbezweifelt ein Meteor-Stein war.
 
-oder kratzt. Sie fühlen sich im Ganzen ziemlich
-glatt, nur hie und da etwas rauh an. In Hin-
-sicht ihrer schwarzen Kruste bemerkt man zwar
-Verschiedenheit, einige sind dunkelschwarz, andere
-haben ein pechartig metallisches schwach schimmern-
-des Ansehen, und sind etwas mürbe; dieser Ver-
-schiedenheit ungeachtet ist doch ihre Gleichartigkeit
-icht zu verkennen, und man bemerkt beim ersten
-Anblick derselben ihre Abstammung aus höheren
-Regionen. Ihre vorzüglichen Bestandtheile sind,
-nach Klaproths neuester Untersuchung *): Eisen,
-Nickel, zuweilen Chromium, Mangan, Kiesel-
-Erde, Bittersalz-Erde, Alaun-Erde, Kalk,
-Schwefel, wovon (wie er hinzusetzt) das Eisen
-als gediegen anzunehmen. Dieses metallischen
-Eisens wegen wirken auch die Aerolithen stärker
-oder schwächer auf die Magnetnadel, und werden
-von ihr angezogen.
+*) S. Analyse des Meteor-Steins von Lissa in demselben Journal.
 
-Wie verschieden dieselben in ihrem Gewichte
-seien, ist daraus abzunehmen, daß man Steine
+*) S. die erwähnte Abhandlung S. 457.
 
-*) S. Analyse des Meteor-Steins von Lissa in
-demselben Iournal.
+*) S. Journal der Chemie am angeführten Orte.
 
-von der keinen Dimension eines Zolls bis auf
-Massen von 3 bis 400 Pfund, ia selbst von 14
-Zentnern (wie jener berühmte Eisenstein, der in
-Sibyrien niederfiel) kennt. *) Unbestimmt ist ihre
-Form und Zahl; bald zugerundet-eiförmig, mit
-Ecken und Kanten; in der Mitte eingedrückt,
-mehrseitig, pyramidalförmig, an den Seiten ab-
-gestumpft, oft ganz kugelrund u. s. f. Gleichver-
-schieden sind sie an Zahl, und in den ihren Fall
-begleitenden Nebenumständen, indem sie theils
-einzeln, theils in geringer Zahl, theils als förm-
-licher Regen (der Steine auf Meilenwegs umher
-streut, welche Hügel und kleine Berge bilden,
-wie kürzlich zu L'aigle in der Normandie **);
-bald fallen sie bei ganz heiteren Tagen, bald bei
-stürmischem wolkigtem Himmel, aber immer (sags
-Reuß) ist beim Herabfallen ein außerordentliches
-Getöse zu hören, das mit einem Knalle aus Ka-
-nonen, Pelotonfeuer, Wirbeln auf Trommeln,
-türkischer Musik, einem orgelähnlichen Pfeifen
+*) Journal für Chemie und Physik. S. 455.
 
-*) S. die erwähnte Abhandlung S. 47.
+Beispiele der Art lassen muthmaßen, welche tiefe Eindrücke von Furcht und Erstaunen solche Phänomene in früherer Zeit auf rohe Menschen, die jede außerordentliche Erscheinung als züchtigende oder Schaden bringende Wirkung einer Gottheit ansahen, erregen mußten. *) Selbst Blitze, sagt Plinius *), glaubten die Römer, würden von neun Göttern geworfen, und es gäbe derselben eilf Arten, davon drei dem Jupiter zugehörten; aber nur zwei blitzende Gottheiten gäbe es, der Zeus, welcher am Tag, und der Summanns, der bei Nacht die Blitze wirft. - Auch Steinregen (sagt derselbe Naturkundiger) sendet die Gottheit öfters herab; ein Beispiel liefert er in der Erzählung des bekannten Steinregens, der sich während dem Consulat des Marius ereignete); und am Schlusse dieser Schilderung, Kap. 59, wo er von jenem Meteor-Steine spricht, den Anaxagoras, wie die Sage erzählt, längst vorher berechnet hatte, sagt er bestimmt, dieser Aerolithe werde im Gymnas zu Abydos in besonderer Ehre gehalten. - Colitur (ist sein Ausdruck), welches Große, sein deutscher Uebersetzer, wie mich dünkt, unrichtig mit aufbewahrt ausdrückt, da in der nächstfolgenden Periode es heißt: und die Colonie, welche man Potidäa nennt, des Steines ( nämlich der Verehrung wegen), so diese Colonie dem Stein bezeigte, der wahrscheinlich ihr Lokal- und Schutzgott war, hieher geführt ward. *)
 
-*) S. ournal der Chemie am angeführten Orte.
+*) Noch gegen Ende des 17ten Iahrhunderts wurde ein in der Ortenau gefallener Meteor-Stein für ein sichtbares Zornzeichen des Himmels gebalten In einem seltenen Büchelchen (gedruckt 1671) wird diese Erscheinung erzählt. (Herr Gilbert hat sie im 1ten Stück der physischen Annalen für 1809 mitgetheilt.) Der Berichtserstatter sagt unter andern: "daß dieser Stein wie die Donnerfeile in der Luft generirt worden, werde ich mich schwerlich überreden können, weil er ein mineralisch Erz zu haben scheint, und nicht, wie andere dergleichen Steine, die frisch bekommen werden, nachdem sie herunter gefallen, nach Schwefel gerochen, oder heiß gewesen; sondern will viel ebender zugeben, daß diese Steine, weil man sie an unterschiedenen Orten so weit von einander gehört, aus Verhängnuß Gottes vom bösen Geist und seinem Anhang auf Erden gesammlet, in die Luft geführt, und von da wieder zerstreut worden." - Dieser Meinung gemäß, hält der Verfasser sie demnach für ein Prognostikon der steinern Türken Herzen und grimmigen Hundes Art, die sie gegen das tbeure Christenblut zu verüben pflegen! In der Beschreibung dieses Luft-Steines verdient besonders bemerkt zu werden, daß einer der Anwesenden erzählt: Er habe etwas über sich hinaus fahren sehen, wie eine glühende Kugel, davon er niedergesunken; ein anderer sah etwas vom Grunde über sich spritzen, fand daselbst ein Loch, und den darin liegenden Stein anderthalb Fuß tief. Worauf der Berfasser jener Beschreibung die Hynothese begründet, daß dieser Stein aus der Erde in die Luft geschoben, und dann herab gefallen sei. Eine Meinung, die viel Aehnlichkeit mit jener neuen des Herrn Patrin (Annalen der Physik, 10. Stück für 180. S. 1891 hat, der die Büldung der vulkanischen Materien überhaupt aus einer chemischen Berbindung der gasförmigen im Innern der Erde zirkulirenden Flüssigkeiten erklärt, welche durch die mineralische Assimilation zu Steinen und Metallen werden; denen ähnlich, von welchen man annimmt, daß sie auf nassem Wege gebildet worden find. - Der angeführte Meteor-Stein wog 10 Pfund, war, wie alle übrigen, an Farbe äußerlich schwurz, von Innen grau, etwas löchericht, wie mit dem Finger eingedrückt, seine Form beinah die eines Hundskopfs ohne Ohren u. s. f.
 
-und Sausen in den höheren Luftregionen vergli-
-chen wurde; und in vielen, ja den meisten Fällen
-bemerkte man dabei eine Richtung von Südwest
-nach Nordost, so daß die nördlichsten Steine zu-
-erst, die südlichen zuletzt niederfielen. *) Neuere
-Berichte erzählen die außerordentliche Wirkung
-solcher Phänomene auf die Gemüther der Augen-
-zeugen. Ein Meteor dieser Art kam im I. 1789
-über eine Gegend unweit Worms, woselbst ich
-mich auf einem, meiner Familie gehörigen Schlosse
-befand. Im Sommer bei heiterem ganz wolken-
-losem Himmel entstand gegen Abendzeit ein immer
-zunehmendes Rauschen in der Luft, das nicht so-
-wohl dem Rollen des Donners, als dem lärmen-
-den Zug eines Kriegsheeres- zu vergleichen war,
-und immer zunahm, je näher es unserem Wohn-
-sitze kam. Die erschrockenen Landleute, die eben
-noch auf dem Felde waren, liefen, ein nahes Un-
-glück ahnend, ihren Häusern zu, indessen das
-unsichtbare Meteor (ohne Schaden zuzufügen)
-über unsere Häupter hinrollte; alle Bewohner des
+*) Nat. Gesch. Buch II. Kap.5 3.
 
-*) uunal für Chemie und Physik. S. 455.
+*) S. Nat. Gesch. Buch II. Kap. 58. "Man bat uns erzählt, daß zu Zeit des eimbrischen Kriegs, und noch öfter, sowohl vor- als nachher, ein Geräusch der Wafen und der Schall einer Trompete gehört worden sei. Im 3ten Consulat des Marius sahen die Ameriner und Tudertiner Waffen am Himmel, die vom Morgen und Abend her so lange gegen einander fuhren, daß die auf der Abendseite zurück getrieben wurden." - Im folgenden Kapitel erwähnt Plinius dreier, ihm bekannt gewordener Meteor-Steine: einen, den Anaragoras im 2. Iahr der 78. Olymp. vorher gesagt, daß er aus der Sonne fallen würde, und wirklich fiel er zu Aegospotamos (desselben erwähnt Aristoteles in Meteorologia C. VII. A) in Thrazien nieder; er war von der Größe einer fahrbaren Last, schwarz an Farbe, und an seiner Kruste angebrannt, weil, sagt linius, in der Nacht, da er fiel, eben ein Komet brannte; - ein anderer im Gymnase zu Abydos; ein dritter zu Cassandria im Macedonischen; endlich einen, den er selbst kurz nach seinem Falle gesehen, im Vocontischen Gebiete. Uebrigens hat von Steinregen, die in früherer und späterer Zeit fielen, Chladni ein, soviel möglich, vollständiges Verzeichniß gegeben in Gilberts Annalen der Physik XV. 310., worauf ich, um bekannte Dinge nicht zu wiederholen, verweise.
 
-Schlosses vernahmen dessen wunderbare Laute;
-aber unter den Anwesenden befand sich keiner im
-Falle, dies Phänomen gleich nach seiner Erschei-
-nung zu verfolgen; erst nach einiger Zeit erfuhr
-man, daß eine Feuerkugel nicht fern des Ortes
-niedergefallen sei, nach der man sich gleichfalls
-nicht weiter umsah, die aber, den seither über
-Aerolithen bekannten Thatsachen nach, unbezwei-
-felt ein Meteor-Stein war.
+*) Von Steinregen, die zu verschiedenen Zeiten sich ereigneten, verdient besonders jener im Iahr Christi 769 gefallene erwähnt zu werden, dessen Aboulfaradi oder Gregorius-barhebraeus in seiner syrischen Chronik gedenkt, und der aus schwarzen Steinen bestand. Von einem andern im Jahr Chrißi 893 gefallenen spricht derselbe Schriftsteller. Beide bestätigen die Muthmaßung, daß dieschwarzen Steine auf dem sogenannten Gileads-Hügel in Syrien (einer Gegend, wo sich gewöhnlich nur weiße Kalksteine vorfinden) gleichfalls Aerolithen oder Produkte eines Steinregens sind. S. Silvestre de Sacy Noten zu seiner französischen Uebersesetung von Abd--Alatifs (eines arabischen Arztes aus Bagdad) Beschreibung Egyptens. Paris 1810. 4. p. 505.
 
-Beispiele der Art lassen muthmaßen, welche
-tiefe Eindrücke von Furcht und Erstaunen
-solche Phänomene in früherer Zeit auf rohe Men-
-schen, die jede außerordentliche Erscheinung als
-züchtigende oder Schaden bringende Wirkung einer
-Gottheit ansahen, erregen mußten. *) Selbst
+Aber früher noch, als diese Epoche, wurden heilige Steine, cerga, verehrt, die der Beschreibung nach alle Eigenschaften wahrer Aerolithen hatten. Aus Sanchuniaton, den Eusebius*) anführt, lernen wir, daß die Göttin Astarte einen Stein fand, der als Stern vom Himmel gefallen war, und nachdem sie ihn aufgehoben hatte, denselben der Stadt Tyrus weihte.* Man liest ferner in einem alten, dem Orpheus zugeschriebenen Gedichte: Von den Steinen, die Beschreibung eines Steines, Ophites genannt **), der (wie es darin heißt) der wahre Siderites sei. Apollon (so erzählt das Gedicht) gab diesen Siderites (Stern-Stein) --- anders nennen ihn Ophites --- dem Trojaner Helenos; der Stein, der die Gabe zu reden hatte, ist hart, schwer an Gewicht, und schwarz an Farbe. Viele im Kreis laufende Streifen sind auf seiner äußeren Rinde zu sehen. Helenos gebrauchte denselben mittelst verschiedener bei Beschwörungen üblicher Gebräuche zu Bezauberungen und Wahrsagerkünsten, wodurch er, wie es heißt, den Untergang Trojas vorgesagt habe. *) Ein anderer Stein, den Plinius Astroides **) nennt, und dessen sich, wie er hinzusetzt, Zoroaster zu seinen magischen Künsten bediente, ist nnbezweifelt ein Aerolith, dem man magische Kräste zuschrieb. In denen von ihm übrig gebliebenen Orakeln wird vorgeschrieben, einen solchen dem Himmel entfallenen und Gott geheiligten Stein zu opfern, so oft sich ein böser Daimon der Erde nähere; und im Leben dieses Weltweisen sagt Porphyr: Als der weise Perser sich in der Insel Krota befunden, sei er vom Priester Morgos, einem der idäischen Daktylen mit einem Donnersteine zur Einweihung bereitet worden, eine Sage, die um so möglicher ist, da ihr ein naturhistorisches Factum zum Grunde liegt, und es scheint, daß in frühesten Zeiten auf dem Ida ein Steinregen gefallen sein müsse, da man auf dessen Gipfel nach Plin. Nat. Gesch. 37. B. K. 61. idäische Daktylen oder fingerförmige Steine von weißblaulichter Farbe in großer Menge findet, woraus sich leicht der später entstandene Mythos von Zeus Geburt am Ida erklären läßt. Denn in Creta (nach Dikäarch die älteste Insel) wohnten die Eteo-Creter oder Idäi Daktili, eingewanderte Colonisten aus Phrygien, die sich besonders um den höchsten Berg der Insel ansiedelten, und ihm den Namen des phrygischen Ida gaben. Von Cres, ihrem Könige, nahm die Insel den Namen. Die Idäi Daktili aber brachten die erste Cultur sowohl als den Dienst der großen Göttin dahin, und der Cabiren; die ersten Waffen wurden von ihnen erfunden; dieser Eisen-, vielleicht auch Magnetreiche Berg, der eine Wetterscheide der Gegend war, woran sich öfters meteorologische Phänomene zeigten, mußte daher der Schauplatz großer Naturerscheinungen sein, und der Himmel (dem Mythos gemäß), als erzeugender Vater, kam -- sich verbindend --- zur mütterlichen Erde; der junge Zeus fand hier seine Wiage, und die Corybanten, die ersten Priester der Insel, pflegten seiner Kindheit; was Uranos aber aus seiner Höhe durch Meteore herabsandte, wurde als Erzeugniß von ihm angesehen; so waren auch die daktylischen Steine von ihm gesandt worden. Ob sie nun den ersten Bewohnern, oder diese jenen den Namen gegeben, bestimmen die Nachrichten nicht, aber das sagen die ältesten Geschichtschreiber: Scepsius, Pherecides *), Herodot **), und späterhin Diodorus *), daß diese idäischen Finger (Daktylen), die für Zauberer galten, und sich auf Magie, Ordens-Einweihungen, geheime Wissenschaften legten, wadurch sie die wilden Bewohner aller Länder, zu denen sie sich begaben, in Erstaunen setzten, zuerst den Gebrauch des Feuers, des Eisens und die Bearbeitung desselben erfanden, weshalb sie für Söhne des Vulkans galten, und verdienten als Götter verehrt zu werden. Am Ida, den sie bewohnten, waren auch die ersten Erzgruben, und des Berges Schoos barg einen reichen Vorrath des ergiebigsten Eisens. --- Von des Zeus Geburt, Iugend und zarter Pflege durch die Nymphen in einer Höhle des Berges liefert die Sage die lieblichsten Mythen, denn das Kind, gefüttert mit Milch und Honig, an der Brust der Ziege Amalthea säugend, ward von freundlichen Bienen genährt, die, wie Diodor (Gesch. Buch V. Kap. 70.) erzählt, der Gott, um das Andenken seiner Geneigtheit gegen dieselben zu bewahren, in ihrer Farbe einem goldgelben Erze ähnlich machte, und sie so verwandelte. -- Also nicht in Gold selbst, wie die Worte deutlich sagen, sondern in ein dem Golde an Farbe ähnliches Erz, worunter, wie mir scheint, kein anderes zu verstehen ist, als der bei allen Erzgängen so gewöhnliche Schwefelkies, Markasit, den Agricola, seiner Analogie mit dem Magnet wegen, mica Magnetis nennt, und Langius in Hist. Lap. Helv. p. 21: usraooc. Da die Biene aber das Bilh der Arbeit ist, so scheint die Mythe in dieser Allegorie die fleißige Ausförderung des Eisens, eines Geschenkes, das der Gott dem Berge gab, symbolisirt zu haben. Vielleicht hat es auch Bezug auf das Feuer selbst, das dem Himmel oder Zeus heilig war, denn die Alten bedienten sich des Markasits zum Feuerzeug, gleich anderen Kieselarten, weshalb er den Namen Pyrites (Feuerstein) erhielt. *)
 
-*) Noch gegen Ende des 17ten Iahrhunderts wurde
-ein in der Ortenau gefallener Meteor-Stein
-für ein sichtbares Zornzeichen des Himmels
-gebalten In einem seltenen Büchelchen (gedruckt
-1671) wird diese Erscheinung erzählt. (Herr Gil-
-bert hat sie im 1ten Stück der physischen Annalen
-für 1809 mitgetheilt.) Der Berichtserstatter sagt
-unter andern: "daß dieser Stein wie die Donner-
-"feile in der Luft generirt worden, werde ich mich
+*) Praepar. Evang. L. I. C. 10.
 
-Blitze, sagt Plinius *), glaubten die Römer,
-würden von neun Göttern geworfen, und es
-gäbe derselben eilf Arten, davon drei dem Jupiter
-zugehörten; aber nur zwei blitzende Gottheiten
-gäbe es, der Zeus, welcher am Tag, und der
+*) Man erinnere sich hierbei, daß Astarte oder Alilat die Göttin war, die nach Herodot B. III. K. S. die Araber unter dem Bild eines Steines verehrten.
 
-"schwerlich überreden können, weil er ein mine-
-"ralisch Erz zu haben scheint, und nicht, wie an-
-"dere dergleichen Steine, die frisch bekommen
-"werden, nachdem sie herunter gefallen, nach
-"Schwefel gerochen, oder heiß gewesen; sondern
-will viel ebender zugeben, daß diese Steine, weil
-"man sie an unterschiedenen Orten so weit von
-"einander gehört, aus Verhängnuß Gottes vom
-"bösen Geist und seinem Anhang auf Erden ge-
-"sammlet, in die Luft geführt, und von da wie-
-"der zerstreut worden.-- Dieser Meinung gemäß,
-hält der Verfasser sie demnach für ein Progno-
-stikon der steinern Türken Herzen und
-grimmigen Hundes Art, die sie gegen
-das tbeure Christenblut zu verüben
-pflegen! In der Beschreibung dieses Luft-
-Steines verdient besonders bemerkt zu werden,
-daß einer der Anwesenden erzählt: Er habe etwas
-über sich hinaus fahren sehen, wie eine glühende
-Kugel, davon er niedergesunken; ein anderer sah
-etwas vom Grunde über sich spritzen, fand daselbst
-ein Loch, und den darin liegenden Stein andert-
-halb Fuß tief. Worauf der Berfasser jener Be-
-
-Summanns, der bei Nacht die Blitze wirft. --
-Auch Steinregen (sagt derselbe Naturkundiger)
-sendet die Gottheit öfters herab; ein Beispiel liefert
-er in der Erzählung des bekannten Steinregens, der
-sich während dem Consulat des Marius ereignete);
-
-schreibung die Hynothese begründet, daß dieser
-Stein aus der Erde in die Luft geschoben, und
-dann herab gefallen sei. Eine Meinung, die viel
-Aehnlichkeit mit jener neuen des Herrn Patrin
-(Annalen der Physik, 10. Stück für 180. S. 1891
-hat, der die Büldung der vulkanischen Materien
-überhaupt aus einer chemischen Berbindung der
-gasförmigen im Innern der Erde zirkulirenden
-Flüssigkeiten erklärt, welche durch die mineralische
-Assimilation zu Steinen und Metallen werden;
-denen ähnlich, von welchen man annimmt, daß
-sie auf nassem Wege gebildet worden find. -- Der
-angeführte Meteor-Stein wog 10 Pfund, war,
-wie alle übrigen, an Farbe äußerlich schwurz, von
-Innen grau, etwas löchericht, wie mit dem Finger
-eingedrückt, seine Form beinah die eines Hunds-
-kopfs ohne Ohren u. s. f.
-
-*) Nat. Gesch. Buch II. Kap. 3.
-
-*) S. Nat. Gesch. Buch II. Kap. 58. "Man bat
-"uns erzählt, daß zu Zeit des eimbrischen Kriegs,
-"und noch öfter, sowohl vor- als nachher, ein
-
-und am Schlusse dieser Schilderung, Kap. 59,
-wo er von jenem Meteor-Steine spricht, den
-Anaxagoras, wie die Sage erzählt, längst vorher
-
-"Geräusch der Wafen und der Schall einer Trom-
-"pete gehört worden sei. Im 3ten Consulat des
-"Marius sahen die Ameriner und Tudertiner Waf-
-"fen am Himmel, die vom Morgen und Abend
-"her so lange gegen einander fuhren, daß die auf
-"der Abendseite zurück getrieben wurden. -- Im
-folgenden Kapitel erwähnt Plinius dreier, ihm
-bekannt gewordener Meteor-Steine: einen, den
-Anaragoras im 2. Iahr der 78. Olymp. vorher
-gesagt, daß er aus der Sonne fallen würde, und
-wirklich fiel er zu Aegospotamos (desselben erwähnt
-Aristoteles in Meteorologia C. VII. A) in Thra-
-zien nieder; er war von der Größe einer fahr-
-baren Last, schwarz an Farbe, und an seiner
-Kruste angebrannt, weil, sagt linius, in der
-Nacht, da er fiel, eben ein Komet brannte; --
-ein anderer im Gymnase zu Abydos; ein dritter zu
-Cassandria im Macedonischen; endlich einen, den
-er selbst kurz nach seinem Falle gesehen, im Vo-
-contischen Gebiete. Uebrigens hat von Steinregen,
-die in früherer und späterer Zeit fielen, Chladni
-ein, soviel möglich, vollständiges Verzeichniß ge-
-geben in Gilberts Annalen der Physik XV. 310.,
-worauf ich, um bekannte Dinge nicht zu wieder-
-holen, verweise.
-
-berechnet hatte, sagt er bestimmt, dieser Aero-
-lithe werde im Gymnas zu Abydos in
-besonderer Ehre gehalten. - Colitur
-(ist sein Ausdruck), welches Große, sein deut-
-scher Uebersetzer, wie mich dünkt, unrichtig mit
-aufbewahrt ausdrückt, da in der nächstfolgen-
-den Periode es heißt: und die Colonie, welche
-man Potidäa nennt, des Steines ( nämlich
-der Verehrung wegen), so diese Colonie dem
-Stein bezeigte, der wahrscheinlich ihr Lokal-
-und Schutzgott war, hieher geführt ward. *)
-
-*) Von Steinregen, die zu verschiedenen Zeiten sich
-ereigneten, verdient besonders jener im Iahr Christi
-769 gefallene erwähnt zu werden, dessen Aboul-
-faradi oder Gregorius-barhebraeus in seiner
-syrischen Chronik gedenkt, und der aus schwarzen
-Steinen bestand. Von einem andern im Iahr
-Chrißi 893 gefallenen spricht derselbe Schriftsteller.
-Beide bestätigen die Muthmaßung, daß dieschwar-
-zen Steine auf dem sogenannten Gileads-Hügel
-in Syrien (einer Gegend, wo sich gewöhnlich
-nur weiße Kalksteine vorfinden) gleichfalls Aerolithen
-oder Produkte eines Steinregens sind. S. Silvestre
-de Sacy Noten zu seiner französischen Uebersesetung
-von Abd--Alatifs (eines arabischen Arztes aus
-Bagdad) Beschreibung Egyptens. Paris 1810. 4.
-p. 55.
-
-Aber früher noch, als diese Epoche, wurden
-heilige Steine, cerga, verehrt, die der Be-
-schreibung nach alle Eigenschaften wahrer Aeroli-
-then hatten. Aus Sanchuniaton, den Eusebius*)
-anführt, lernen wir, daß die Göttin Astarte einen
-Stein fand, der als Stern vom Himmel
-gefallen war, und nachdem sie ihn aufgehoben
-hatte, denselben der Stadt Tyrus weihte. *
-Man liest ferner in einem alten, dem Orpheus
-zugeschriebenen Gedichte: Von den Steinen,
-die Beschreibung eines Steines, Ophites ge-
-nannt **), der (wie es darin heißt) der wahre
-
-*) Praepar. Evang. L. 1. C. 10.
-
-*) Man erinnere sich hierbei, daß Astarte oder Alilat
-die Göttin war, die nach Herodot B. III. K. S.
-die Araber unter dem Bild eines Steines ver-
-ehrten.
-
-*) Ille enim Phoebus Apollo lapidem vocalem
-habendum Sideriten verum dedit, quem
-hominibus aliis placuit vocare anima carentem
-Ophiten funestum, subasperum, durum,
-nigrum, spissum circa ipsum vero circulo ab
-omni parte undique fibrae rugis similes, i-
-sculptae extenduntur.
-Orph. Aezoe . 16-21.
+*) Ille enim Phoebus Apollo lapidem vocalem habendum Sideriten verum dedit, quem hominibus aliis placuit vocare anima carentem Ophiten funestum, subasperum, durum, nigrum, spissum circa ipsum vero circulo ab omni parte undique fibrae rugis similes, insculptae extenduntur.  
+Orph. Aezoe v. 16-21.  
 Edit. Gesneri. Lipsiae 1764.
 
-Siderites sei. Apollon (so erzählt das Gedicht)
-gab diesen Siderites (Stern-Stein) --- anders
-nennen ihn Ophites --- dem Trojaner Helenos;
-der Stein, der die Gabe zu reden hatte, ist hart,
-schwer an Gewicht, und schwarz an Farbe.
-Viele im Kreis laufende Streifen sind auf seiner
-äußeren Rinde zu sehen. Helenos gebrauchte den-
-selben mittelst verschiedener bei Beschwörungen
-üblicher Gebräuche zu Bezauberungen und Wahr-
-sagerkünsten, wodurch er, wie es heißt, den Un-
-tergang Trojas vorgesagt habe. *) Ein anderer
-Stein, den Plinius Astroides **) nennt, und
-dessen sich, wie er hinzusetzt, Zoroaster zu seinen
-magischen Künsten bediente, ist nnbezweifelt
-ein Aerolith, dem man magische Kräste zuschrieb.
-In denen von ihm übrig gebliebenen Orakeln
-wird vorgeschrieben, einen solchen dem Himmel
-entfallenen und Gott geheiligten Stein zu opfern,
-so oft sich ein böser Daimon der Erde nähere; und
+*) S. Falconnet sur les Baetylos in den Mem. de l'acad. des Inscr. T. VI. p. 514.
 
-*) S. Falconnet sur les Baetylos in den Mem.
-de l'acad. des Inscr. T. VI. p. 514.
+*) Plin. Hist. nat. I. 37. C. 9.
 
-*) Pün. Hist. nat. I. 7. C. 9.
-
-im Leben dieses Weltweisen sagt Porphyr: Als
-der weise Perser sich in der Insel Krota befunden,
-sei er vom Priester Morgos, einem der idäischen
-Daktylen mit einem Donnersteine zur
-Einweihung bereitet worden, eine Sage, die um
-so möglicher ist, da ihr ein naturhistorisches Factum
-zum Grunde liegt, und es scheint, daß in frühe-
-sten Zeiten auf dem Ida ein Steinregen gefallen
-sein müsse, da man auf dessen Gipfel nach Plin.
-Nat. Gesch. 37. B. K. 61. idäische Dakty-
-len oder fingerförmige Steine von weißblaulichter
-Farbe in großer Menge findet, woraus sich leicht
-der später entstandene Mythos von Zeus Geburt
-am Ida erklären läßt. Denn in Creta (nach
-Dikäarch die älteste Insel) wohnten die Eteo-
-Creter oder Idäi Daktili, eingewanderte Coloni-
-sten aus Phrygien, die sich besonders um den
-höchsten Berg der Insel ansiedelten, und ihm den
-Namen des phrygischen Ida gaben. Von Cres,
-ihrem Könige, nahm die Insel den Namen. Die
-Idäi Daktili aber brachten die erste Cultur sowohl
-als den Dienst der großen Göttin dahin, und der
-Cabiren; die ersten Waffen wurden von ihnen
-
-erfunden; dieser Eisen-, vielleicht auch Magnet-
-reiche Berg, der eine Wetterscheide der Gegend
-war, woran sich öfters meteorologische Phänomene
-zeigten, mußte daher der Schauplatz großer Na-
-turerscheinungen sein, und der Himmel (dem
-Mythos gemäß), als erzeugender Vater,
-kam -- sich verbindend --- zur mütterlichen Erde;
-der junge Zeus fand hier seine Wiage, und die
-Corybanten, die ersten Priester der Insel,
-pflegten seiner Kindheit; was Uranos aber aus
-seiner Höhe durch Meteore herabsandte, wurde
-als Erzeugniß von ihm angesehen; so waren auch
-die daktylischen Steine von ihm gesandt wor-
-den. Ob sie nun den ersten Bewohnern, oder
-diese jenen den Namen gegeben, bestimmen die
-Nachrichten nicht, aber das sagen die ältesten
-Geschichtschreiber: Scepsius, Pherecides *), He-
-rodot **), und späterhin Diodorus *), daß diese
-
-*) S. Hermanns Handbuch der Mythologie III. Th.
-S. 160u. f.
+*) S. Hermanns Handbuch der Mythologie III. Th. S. 160 u. f.
 
 *) Buch III. 37.
 
 *) Buch V.
 
-idäischen Finger (Daktylen), die für Zau-
-berer galten, und sich auf Magie, Ordens-Ein-
-weihungen, geheime Wissenschaften legten, wa-
-durch sie die wilden Bewohner aller Länder, zu
-denen sie sich begaben, in Erstaunen setzten, zu-
-erst den Gebrauch des Feuers, des Eisens und
-die Bearbeitung desselben erfanden, weshalb sie
-für Söhne des Vulkans galten, und verdienten
-als Götter verehrt zu werden. Am Ida, den
-sie bewohnten, waren auch die ersten Erzgruben,
-und des Berges Schoos barg einen reichen Vor-
-rath des ergiebigsten Eisens. --- Von des Zeus
-Geburt, Iugend und zarter Pflege durch die
-Nymphen in einer Höhle des Berges liefert die
-Sage die lieblichsten Mythen, denn das Kind,
-gefüttert mit Milch und Honig, an der Brust
-der Ziege Amalthea säugend, ward von freund-
-lichen Bienen genährt, die, wie Diodor (Gesch.
-Buch V. Kap. 70.) erzählt, der Gott, um das
-Andenken seiner Geneigtheit gegen
-dieselben zu bewahren, in ihrer Farbe
-einem goldgelben Erze ähnlich machte,
-und sie so verwandelte. -- Also nicht in Gold
+Mehrere Zeugnisse über dem Himmel entfallene und deshalb für heilig gehaltene Steine ließen sich aus alten Schriftstellern anführen. *) Wir eilen jedoch unserem Zwecke näher, indem wir den eigentlichen Namen berühren, den sie im Alterthume trugen.
 
-selbst, wie die Worte deutlich sagen, sondern in ein
-dem Golde an Farbe ähnliches Erz, worunter,
-wie mir scheint, kein anderes zu verstehen ist, als
-der bei allen Erzgängen so gewöhnliche Schwe-
-felkies, Markasit, den Agricola, seiner Analo-
-gie mit dem Magnet wegen, mica Magnetis
-nennt, und Langius in Hist. Lap. Helv. p. 21:
-usraooc. Da die Biene aber das Bilh
-der Arbeit ist, so scheint die Mythe in dieser
-Allegorie die fleißige Ausförderung des Eisens,
-eines Geschenkes, das der Gott dem Berge gab,
-symbolisirt zu haben. Vielleicht hat es auch Bezug
-auf das Feuer selbst, das dem Himmel oder
-Zeus heilig war, denn die Alten bedienten sich des
-Markasits zum Feuerzeug, gleich anderen Kie-
-selarten, weshalb er den Namen Pyrites (Feuer-
-stein) erhielt. *)
+*) Versuch einer Lithurgik oder ökonomischen Mineralogie von Schmieder. Leipzig 1804. II. Theil S. 524.
 
-Mehrere Zeugnisse über dem Himmel entfal-
-lene und deshalb für heilig gehaltene Steine
+Bätylien hießen sie, ein Name, der nicht ursprünglich griechisch, sondern, wie Eusebius **) nach Philo von Biblos, dem Uebersetzer des Sanchuniaton, zeigt, phönizisch ist; belebte Steine nennt sie dieser Geschichtschreiber, und sagt, der Gott Cölus habe sie mit kühner Kunst gebildet; aber Betül war einer der vier Kinder des Himmels (Uranos) und der Gea (Erde), deren drei andere Saturn, Dago und Atlas hießen.
 
-*) Versuch einer Lithurgik oder ökonomischen Mine-
-ralogie von Schmieder. Leipzig 1804. II. Theil
-S. 524.
+Diesen Bätylos (Sohn des Himmels), der Phönizier Gott, muß man daher sorgfältig von den kleinern Bätylien unterscheiden, die, wie der Aberglaube wähnte, von kleinen Gettheiten bewohnt werden, welche ihnen magische Kräfte mittheilten.
 
-ließen sich aus alten Schriftstellern anführen. *)
-Wir eilen jedoch unserem Zwecke näher, indem
-wir den eigentlichen Namen berühren, den sie im
-Alterthume trugen.
+*) Man lese vorzüglich Bochard Canaan L. 2. Selden de Dissyris, Toega de lsu et Orig. Obelisc. Falconnet in der angeführten Schrift.
 
-Bätylien hießen sie, ein Name, der nicht
-ursprünglich griechisch, sondern, wie Eusebius **)
-nach Philo von Biblos, dem Uebersetzer des San-
-chuniaton, zeigt, phönizisch ist; belebte Steine
-nennt sie dieser Geschichtschreiber, und sagt, der
-Gott Cölus habe sie mit kühner Kunst gebildet;
-aber Betül war einer der vier Kinder des Him-
-mels (Uranos) und der Gea (Erde), deren drei
-andere Saturn, Dago und Atlas hießen.
+*) Praepar. Evangel. L. I. C. 10. S. auch Hesychius, Priscian, das Etymologicon.
 
-Diesen Bätylos (Sohn des Himmels), der
-Phönizier Gott, muß man daher sorgfältig von
-den kleinern Bätylien unterscheiden, die, wie der
-
-*) Man lese vorzüglich Bochard Canaan L. 2. -
-Selden de Dissyris, Toega de lsu et Orig.
-Obelisc. Falconnet in der angeführten Schrift.
-
-*) Praepar. Evangel. L. I. C. 10. S. auch He-
-sychius, Priscian, das Etymologicon.
-
-Aberglaube wähnte, von kleinen Gettheiten be-
-wohnt werden, welche ihnen magische Kräfte
-mittheilten.
-
-Den Namen Bätylos leitet Bochard *) vom
-Steine Jacobs, den er auf seiner Flucht nach Me-
-sopotamien an einem Orte des Libanons fand,
-und nachdem er ihm in der Nacht, wo er den be-
-kannten Traum hatte, zum Hauptküssen gedient,
-ihn **) (einem alten ursprünglichen Gebrauche
-nach) mit Oel salbte, zugleich ausrufend: Der
-Herr ist wahrhaft an diesem Orte, und
-ich wußt' es nicht, und den Ort, der vorher
-Luz hieß, Bethel nannte, das ist: Haus des
-Herrn, wovon der Stein den Namen erhielt,
-und bei den Nachkommen in besondere Verehrung
-kam, die aber bald bei den nomadischen Cana-
-niten in Abgötterei ausartete, weshalb er auch,
+Den Namen Bätylos leitet Bochard *) vom Steine Jacobs, den er auf seiner Flucht nach Mesopotamien an einem Orte des Libanons fand, und nachdem er ihm in der Nacht, wo er den bekannten Traum hatte, zum Hauptküssen gedient, ihn **) (einem alten ursprünglichen Gebrauche nach) mit Oel salbte, zugleich ausrufend: Der Herr ist wahrhaft an diesem Orte, und ich wußt' es nicht, und den Ort, der vorher Luz hieß, Bethel nannte, das ist: Haus des Herrn, wovon der Stein den Namen erhielt, und bei den Nachkommen in besondere Verehrung kam, die aber bald bei den nomadischen Cananiten in Abgötterei ausartete, weshalb er auch, wie die jüdische Tradition erzählt *), als Gott zuwider durchs Gesetz verworfen ward.
 
 *) Canaan L. II. Cap. 2. p. 75.
 
-*) Genes. 28. 18. von diesem Gebrauch heilige dem
-Götterdienste geweihte Steine zu salben. S. M-
-nuc. Felix Edit. Lugduni 1672. p. 15.
+*) Genes. 28. 18. von diesem Gebrauch heilige dem Götterdienste geweihte Steine zu salben. S. Mnuc. Felix Edit. Lugduni 1672. p. 15.
 
-wie die jüdische Tradition erzählt *), als Gott
-zuwider durchs Gesetz verworfen ward.
+Nicht unfern von diesem Orte zu Gilead **), dem Steinhügel oder Steinberge, hatte früher schon Jacob, eh' er von seinem Schwiegervater mit Söhnen und Frauen schied, Steine zu einem Haufen gesammelt, die der eine Sahadutta, der andere Gilead nannte, aber Jacob hatte zuvor einen einzigen Mahlstein errichtet. Genes. 21 - 45. Dieser Stein muß von beträchtlicher Größe gewesen sein, indem er ihn als Säule aufrichtete, die unbeweglich stand, und zu nichts anderem, als zum Altar dienen konnte; so sagt die Tradition, und setzt hinzu: seine Farbe sei schwarz gewesen.
 
-Nicht unfern von diesem Orte zu Gilead **),
-dem Steinhügel oder Steinberge, hatte
-früher schon Jacob, eh' er von seinem Schwieger-
-vater mit Söhnen und Frauen schied, Steine zu
-einem Haufen gesammelt, die der eine Sahadutta,
-der andere Gilead nannte, aber Jacob hatte zuvor
-einen einzigen Mahlstein errichtet. Genes. 21
-- 45. Dieser Stein muß von beträchtlicher
-Größe gewesen sein, indem er ihn als Säule
-aufrichtete, die unbeweglich stand, und zu nichts
-anderem, als zum Altar dienen konnte; so sagt
-die Tradition, und setzt hinzu: seine Farbe sei
-schwarz gewesen.
+*) Quanquam ille Cippus amatus fuit a Deo temporibus Patriarcharum, postea tamen edit eum, propterea quod Chananaei deduxerunt illum in ritum Idolatriae. Bochard Canaan p. 785.
 
-*) Quanquam ille Cippus amatus fuit a Deo
-temporibus Patriarcharum, postea tamen
-edit eum, propterea quod Chananaei dedu-
-xerunt illum in ritum Idolatriae. Bochard
-Canaan p. 785.
+*) Nach den mofaischen Nachrichten die eigentlichen Vor-Alpen des Libanons.
 
-*) Nach den mofaischen Nachrichten die eigentlichen
-Vor-Alpen des Libanons.
+Wenn hieraus auch nicht zu erweisen ist, daß es derselbe Stein sei, der, wie die Moslemin vorgeben, noch heutzutage sich in der Caaba zu Mekka befindet, so ist doch so viel sicher, daß die Verehrung, die man ihm seit den Zeiten dieses Patriarchen bezeigte, dem Aberglauben Veranlassung gab, die großen schwarzen Steine, die man unter verschiedenen Benennungen im Orient verehrte, für diesen Stein auszugeben, dessen Heimath Syrien und der Libanon ist, dem er gleichwohl als eigenthümliche Steinart nicht zugehören kann; denn wie ein unterrichteter Reisender *), dem wir in aller Hinsicht glauben dürfen, berichtet, besteht die Grundlage dieses Gebirges, wie überhaupt von ganz Syrien, aus einem harten, weißlichten kieselartigen Kalksteine, so daß die schwarzen größern und kleinern Steine, die zu verschiedenen Epochen sich dort vorfanden, dieser Gegend fremd waren, und außer-Tellurisch durch irgend ein Meteor dahin gebracht sein müssen. Steinregen und dergleichen Phänomene scheinen überhaupt zu jener Zeit in Phönizien und Syrien sich öfters (ob aus atmosphärischen*) oder anderen Ursachen) ereignet zu haben. So jener zu Iosua Zeiten: "Gott ließ bis gen Aseka große Steine über sie regnen, so daß durch diesen Steinhagel eine größere Zahl Canaaniten umkam, als durch das Schwert der Israeliton *), und der Steinregen bei Mose 28. a4., womit der Herr sein Volk bedrohet: "der Herr wird deinem Volke Staub und Asche für Regen geben vom Himmel, bis du vertilget werdest. "
 
-Wenn hieraus auch nicht zu erweisen ist, daß
-es derselbe Stein sei, der, wie die Moslemin
-vorgeben, noch heutzutage sich in der Caaba zu
-Mekka befindet, so ist doch so viel sicher, daß die
-Verehrung, die man ihm seit den Zeiten dieses
-Patriarchen bezeigte, dem Aberglauben Veranlas-
-sung gab, die großen schwarzen Steine, die
-man unter verschiedenen Benennungen im Orient
-verehrte, für diesen Stein auszugeben, dessen
-Heimath Syrien und der Libanon ist, dem er
-gleichwohl als eigenthümliche Steinart nicht zuge-
-hören kann; denn wie ein unterrichteter Reisen-
-der *), dem wir in aller Hinsicht glauben dürfen,
-berichtet, besteht die Grundlage dieses Gebirges,
-wie überhaupt von ganz Syrien, aus einem har-
-ten, weißlichten kieselartigen Kalksteine, so daß
-die schwarzen größern und kleinern Steine, die zu
-verschiedenen Epochen sich dort vorfanden, dieser
-Gegend fremd waren, und außer-Tellurisch
-durch irgend ein Meteor dahin gebracht sein müs-
+*) Volney Reise nach Surien und Egypten, deutsche Uebersetzung Th. I. S. 2 n. s. f.
 
-*) Volney Reise nach Surien und Egypten, deut-
-sche Uebersetzung Th. I. S. 2 n. s. f.
+Jener Jacobs-Stein, der mahrscheinlich doch nicht mehr wog, als die 14 Zentner schwere Eisenmasse, welche in Sibirien niederfiel, ist den vorerwähnten Umständen gemäß unbezweifelt ein Aewolithe gewefen, und die Verehrung, die man ihm (seines Ursprungs wegen) bezeigte, artete in späteren Zeiten durch Aberglauben in Abgötterey aus.
 
-sen. Steinregen und dergleichen Phänomene schei-
-nen überhaupt zu jener Zeit in Phönizien und
-Syrien sich öfters (ob aus atmosphärischen*)
-oder anderen Ursachen) ereignet zu haben. So
-jener zu Iosua Zeiten: "Gott ließ bis gen
-gAseka große Steine über sie regnen,
-"so daß durch diesen Steinhagel eine
-"größere Zahl Canaaniten umkam, als
-"durch das Schwert der Israeliton *),
-und der Steinregen bei Mose 28. a4., womit
-der Herr sein Volk bedrohet: "der Herr wird
-"deinem Volke Staub und Asche für
-Regen geben vom Himmel, bis du
-"vertilget werdest. "
+*) Was dadurch begreislich wird, daß diese Bergkette als Hauptwetterscheide jener Gegend, wie Volney sagt, in meteorologischer Hinsicht äußerst merkwürdig ist.
 
-Iener Jacobs-Stein, der mahrscheinlich doch
-nicht mehr wog, als die 14 Zentner schwere Eisen-
-masse, welche in Sibirien niederfiel, ist den vor-
+*) Josua 10. 11.
 
-*) Was dadurch begreislich wird, daß diese Bergkette
-als Hauptwetterscheide jener Gegend, wie Volney
-sagt, in meteorologischer Hinsicht äußerst merk-
-würdig ist.
+Wie nun diese Steinmasse als Symbol einer Gottheit auf den Spitzen des Libanon stand, so verehrte man östlich an Indiens Grenzen zu. Nepal *) (unfern Benares) den schwarzen Stein als Bild des Mahadeo (den Gott der Liebe und Zeugung), auch in Cachemir verehrte man einen vom Himmel gefallenen Stein, einen anderen als Lingam in der Pagode von Perwuttum; so wie westwärts in Griechenland den viereckigten schwarzen Stein Saturns, der zu Pausanias Zeiten noch im Apollo-Tempel zu Delphos bewahrt *), täglich mit Oel bestrichen und roher Wolle umwickelt wurde. Dahin kann man gleichfalls jenen Stein von Pessinunt zählen, welcher der Cybele heilig war, und im zweiten punischen Krieg nach Rom gebracht wurbe.
 
-*) Iosua 10. 11.
+*) In Dappers Asia steht p. 111 nach Della Valle's Beschreibung eine treue Abbildung des Mahadeva (oder Gott der Zeugung) als Lingam. S. ferner Account of the Kiugdom of Nepal im 2. Th. der Asiatik Researches, 8te Ausgabe S. 307, von einem im nördlichen Europa niedergefallenen Aerolithen liefert Bartholin eine Beschreibung in ist. Anatom. Centur. IIl. et IV. p. 337.
 
-erwähnten Umständen gemäß unbezweifelt ein Ae-
-wolithe gewefen, und die Verehrung, die man
-ihm (seines Ursprungs wegen) bezeigte, artete
-in späteren Zeiten durch Aberglauben in Abgöt-
-terey aus.
+Es zeigten sich (sagt Appian vom Hannibalischen Kriege, Kap. 56.) zu jener Zeit zu Rom schreckliche Wunderzeichen am Himmel, weswegen die zehn Männer die Sibyllinischen Bücher nachschlagen mußten, und aus denselben antworteten:
 
-Wie nun diese Steinmasse als Symbol einer
-Gottheit auf den Spitzen des Libanon stand,
-so verehrte man östlich an Indiens Grenzen zu.
-Nepal *) (unfern Benares) den schwarzen
-Stein als Bild des Mahadeo (den Gott der
-Liebe und Zeugung), auch in Cachemir
-verehrte man einen vom Himmel gefallenen Stein,
-einen anderen als Lingam in der Pagode von
-Perwuttum; so wie westwärts in Griechenland
-den viereckigten schwarzen Stein Saturns, der
-
-*) In Dappers Asia steht p. 111 nach Della Valle's
-Beschreibung eine treue Abbildung des Mahadeva
-(oder Gott der Zeugung) als Lingam. S. ferner
-Account of the Kiugdom of Nepal im 2. Th.
-der Asiatik Researches, 8te Ausgabe S. 307,
-von einem im nördlichen Europa niedergefallenen
-Aerolithen liefert Bartholin eine Beschreibung in
-ist. Anatom. Centur. IIl. et IV. p. 337.
-
-
-zu Pausanias Zeiten noch im Apollo-Tempel zu
-Delphos bewahrt *), täglich mit Oel bestrichen
-und roher Wolle umwickelt wurde. Dahin kann
-man gleichfalls jenen Stein von Pessinunt zählen,
-welcher der Cybele heilig war, und im zweiten
-punischen Krieg nach Rom gebracht wurbe.
-
-Es zeigten sich (sagt Appian vom Hannibali-
-schen Kriege, Kap. 56.) zu jener Zeit zu Rom
-schreckliche Wunderzeichen am Himmel, weswegen
-die zehn Männer die Sibyllinischen Bücher
-nachschlagen mußten, und aus denselben antwor-
-teten:
-
-"Es werde in jenen Tagen zu Pes-
-"sinus in Phrygien, wo die Mutter,
-"der Götter verehrt wird, etwas vom
-"Himmel fallen, das man nach Rom
-bringen müsse; nicht lange darnach sei die
-Nachricht gekommen, es sei wirklich herab
-gefallen, worauf denn das Bildniß
-der Göttin nach Rom geholt wurde,
+"Es werde in jenen Tagen zu Pessinus in Phrygien, wo die Mutter, der Götter verehrt wird, etwas vom Himmel fallen, das man nach Rom bringen müsse;" nicht lange darnach sei die Nachricht gekommen, es sei wirklich herab gefallen, worauf denn das Bildniß der Göttin nach Rom geholt wurde, an welchem Tage die Römer (setzt Apian hinzu) wirklich noch das Fest der Mutter der Götter feiern. --- Die Größe, Form und Farbe des Steins beschreibt Arnobius advers. Gentes L- VI. et VII. allatum ex Phrygia -- ----- nihib quidem aliud nisi lapis quidam nan magnusg ferri manu hominis sine ulla impressione, qui posset, Coloris fulvi atque atri, angulin prominentibus inaequalis, at quem omnes hodie ipso iklo videmus in signo Oris loco poaitum indolatum, et asperum et simulacro faciem minus expressam simulatione praeben tem. --- Die Worte: in igna Qris, zeigen, daß der Stein einem Munde glich, und man ihn deswegen an des Mundes Sselle ins Antlitz der Göttin einfaßte, wodurch, dem geheimen Sinn nach, die Bildsäule diejenige Gottheit murde, die man im Stein verborgen glaund die Orakel gingen aus diesem Munde ( dem geheiligten Steine) hervor, welches Prudentius in folgenden Versen beschreibt: Lapis nigellus evehendus essedo Muliebris Oris clausus argento sedet. Diesen Woxten Muliebris Oris gemäs, auch des Umstandes wegen, daß der- Stein von sehr unbeträchtlicher Größe *) gewesen sein müsse, indem bei seiner Ankunft in Rom im Iahre 548 die römischen Damen ihn, wie Livius versichert, wechselseitig von Hand zu Hand bis zum Tempel der Bictoria trugen *), hält Faleonet (in den Mem. de l'acad. des Inscr. T. XXIII. Dissert. de la Mere des Dieu) diesen Stein für einen Hysteriolithen der Aehnlichkeit wegen mit einem Munde, melche Form dem frühen Aberglauben Anlaß gegeben habe, ihn als den Mund einer Göttin zu verehren, der esoterische Cultus aber habe darunter die Natur, als Urquelle alker Wesen symbolisirt, in welchem Sinne auch Irenäus von den Cainiten, einer christlichen Sekte der früheren Iahrhundorte, sagt: Cainiti Hysteram fabricatorem Coeli et Terrae vocant. L. I. contr. Haereses C. 35. wie dasselbe Wort zuweilen auch für die Mutter aller Wesen galt. Aehnliche Bätylien (wie Salmasius zu Lambridii Helo gabal. Edit. Lugd. Battav. 1671. T. 1. p. 801 zeigt) waren auch anderen Gottheiten, dem Jupiter, Saturn, der
 
 *) Pausan. Griechenland B. X. Kap. 24.
 
-an welchem Tage die Römer (setzt Apian hinzu)
-wirklich noch das Fest der Mutter der Götter
-feiern. --- Die Größe, Form und Farbe des
-Steins beschreibt Arnobius advers. Gentes L-
-VI. et VII. allatum ex Phrygia -- ----- nihib
-quidem aliud nisi lapis quidam nan magnusg
-ferri manu hominis sine ulla impressione,
-qui posset, Coloris fulvi atque atri, angulin
-prominentibus inaequalis, at quem omnes
-hodie ipso iklo videmus in signo Oris loco
-poaitum indolatum, et asperum et simulacro
-faciem minus expressam simulatione praeben
-tem. --- Die Worte: in igna Qris, zeigen,
-daß der Stein einem Munde glich, und man ihn
-deswegen an des Mundes Sselle ins Antlitz der
-Göttin einfaßte, wodurch, dem geheimen Sinn
-nach, die Bildsäule diejenige Gottheit murde, die
-man im Stein verborgen glaund die
-Orakel gingen aus diesem Munde ( dem geheilig-
-ten Steine) hervor, welches Prudentius in fol-
-genden Versen beschreibt: Lapis nigellus eve-
-hendus essedo Muliebris Oris clausus argento
-" sedet. Diesen Woxten Muliebris Oris gemäs,
+*) Welches jedoch Banier in einer Abhandlung übes die Mutter der Götter im V. Band der Mem. de l'acad. des Inscr. p. 244. leugnet, hauptsächlich aus dem Grunde, weil, wäre der zu Pessinunt gefallene Stein von unbeträchtlicher Größs gewesen, er nicht so leicht bemerkt, und in fernen Gegenden bekannt worden wäre. Vielleicht aber fielen mit demselben noch mehrere kleine, und einer dieser minder großen Steine konnte ja nach Rom gebracht worden sein. -- Zugleich bemerkt Banier, daß die pessinuntischen Priester der großen Göttin auf dem Günel, der sich um den Leib schloß, kleine geweihte Bätylien trugen; ob diese gleichfalls vom Himmel gefallen waren, wird nicht angegeben. - Aber von jenem Hauptsteine der Göttin sagt auch Arnobius, er sei von beträchtlicher Größe gewesen, und hahe (der alten Sage nach) für jene Felsmasse gegolten, von der Deukalion die Steine abschlug, aus denen er Menschen bildete; der nach Rom gebrachte muß also doch wohl von leinerer Art gewesen sein.
 
-auch des Umstandes wegen, daß der- Stein von
-sehr unbeträchtlicher Größe *) gewesen sein müsse,
-indem bei seiner Ankunft in Rom im Iahre 548
-die römischen Damen ihn, wie Livius versichert,
-wechselseitig von Hand zu Hand bis zum Tempel
-
-*) Welches jedoch Banier in einer Abhandlung übes
-die Mutter der Götter im V. Band der Mem.
-de l'acad. des Inscr. p. 244. leugnet, haupt-
-sächlich aus dem Grunde, weil, wäre der zu Pes-
-sinunt gefallene Stein von unbeträchtlicher Größs
-gewesen, er nicht so leicht bemerkt, und in fernen
-Gegenden bekannt worden wäre. Vielleicht aber
-fielen mit demselben noch mehrere kleine, und einer
-dieser minder großen Steine konnte ja nach Rom
-gebracht worden sein. -- Zugleich bemerkt Banier,
-daß die pessinuntischen Priester der großen Göt-
-tin auf dem Günel, der sich um den Leib schloß,
-kleine geweihte Bätylien trugen; ob diese gleich-
-falls vom Himmel gefallen waren, wird nicht an-
-gegeben. - Aber von jenem Hauptsteine der Göt-
-tin sagt auch Arnobius, er sei von beträchtlicher
-Größe gewesen, und hahe (der alten Sage nach)
-für jene Felsmasse gegolten, von der Deukalion
-die Steine abschlug, aus denen er Menschen bil-
-dete; der nach Rom gebrachte muß also doch wohl
-von leinerer Art gewesen sein.
-
-
-der Bictoria trugen *), hält Faleonet (in den
-Mem. de l'acad. des Inscr. T. XXIII. Dissert.
-de la Mere des Dieu) diesen Stein für einen
-Hysteriolithen der Aehnlichkeit wegen mit
-einem Munde, melche Form dem frühen Aber-
-glauben Anlaß gegeben habe, ihn als den Mund
-einer Göttin zu verehren, der esoterische Cultus
-aber habe darunter die Natur, als Urquelle alker
-Wesen symbolisirt, in welchem Sinne auch Ire-
-näus von den Cainiten, einer christlichen Sekte
-der früheren Iahrhundorte, sagt: Cainiti Hy-
-steram fabricatorem Coeli et Terrae vocant.
-L. I. contr. Haereses C. 35. wie dasselbe Wort
-zuweilen auch für die Mutter aller Wesen
-galt. Aehnliche Bätylien (wie Salmasius zu
-Lambridii Helo gabal. Edit. Lugd. Battav.
-1671. T. 1. p. 801 zeigt) waren auch anderen
-Gottheiten, dem Jupiter, Saturn, der
-
-*) In terram elatam tradidit (scipio Nasica)
-ferendam Matronis -- -- - age per maus,
-succedentes aliae aläs, in aedem viotoriae
-pertulere. Liv. XVII. v. 16.
+*) In terram elatam tradidit (scipio Nasica) ferendam Matronis -- -- - age per maus, succedentes aliae aläs, in aedem viotoriae pertulere. Liv. XVII. v. 16.
 
 ...
 
