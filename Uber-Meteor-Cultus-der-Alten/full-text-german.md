@@ -241,90 +241,24 @@ Jedes Volk hatte in denMitte seines Versammlungsortes einen solchen Stein als Sy
 
 *) Kap. XIX.
 
-*) Auch den Iuden war der heilige Stein ein
-Symbol der Gottbeit; so sagt Iesaias VIII. 14.
-"Iehovah Zebaoth --den seht für heilig an,
-"Nur der sei eure Furcht, nur der euer
-Schrecken,
-"Dann dient er euch zur Sicherheit, gleich
-dem heil'gen Stein.
-Nach Iusti's Uebersetzung in den Blumen alt-
-hebräischer Dichtkunst.
+*) Auch den Juden war der heilige Stein ein Symbol der Gottbeit; so sagt Iesaias VIII. 14.
+"Jehovah Zebaoth -- den seht für heilig an,  
+Nur der sei eure Furcht, nur der euer  
+Schrecken,  
+Dann dient er euch zur Sicherheit, gleich  
+dem heil'gen Stein."  
+Nach Iusti's Uebersetzung in den Blumen althebräischer Dichtkunst.
 
-*) Einen dahin sich beziehenden Gebrauch zweier
-indischen Völker (der Zechien und Albara-
-chen), deren Sitz und Ursprung jetzt schwer
-anzugeben ist, führt ein wenig bekannter Schrist-
-steller, Vincantius Bollovancensis in Speculo
-histor. Cap. IV. an; die Stelle, deren Ouseli
-in seinen Noten zum Min. Felix. Lugd. Batav.
-1672. p. 17. erwähnt, ist zu merkwürdig, um
-hier nicht ausführlich zu stehen:
-Duarum Indiae gentium, quae vocantur
-Techiam et Albarachuma, antiqua consue-
-tudo fuit, nudos et decalvatos, magnisque
-ululatibus personantes Simulachra Daemo-
-num circumire, angulos quoque osculari,
-et projicere lapides in acervum, qui quasi
-pro honore Diis exstruebatur. Inde est,
-quod in libro Salomonis dicitur; qui projicit
-lapidem in honorem Mercurji. Faciebant
-autem hoc bis in anno, sole scilicet existente
-in primo gradu Arietis, et rursus, cum esset
-in primo gradu Librae: hoc est, initio Veris
-et Autumni. Haec ergo consuetudo cum ab
-Indis ad Arabes descendisset; eamque suo
-tempore apud Mecham in honorem Veneris
-Mahmmed celebrari reperisset; sic illam
-manere praecepit, cum tamen cetera idolo-
-latriae vestigia removisset. IIlud vero soli
-veneri in illa celebratione dicitur exhiberi
-solitum, ut lapilli retro, id est, sub genita-
-Jbus membris projicerentur, eo quod Venus
-maxime partibus ilis domiotur. Unde id
-ahuc odie fit in domo Dei illicita quam
-vocant.
+*) Einen dahin sich beziehenden Gebrauch zweier indischen Völker (der Zechien und Albarachen), deren Sitz und Ursprung jetzt schwer anzugeben ist, führt ein wenig bekannter Schriststeller, _Vincantius Bollovancensis in Speculo histor. Cap. IV._ an; die Stelle, deren Ouseli in seinen Noten zum _Min. Felix. Lugd. Batav. 1672. p. 17._ erwähnt, ist zu merkwürdig, um hier nicht ausführlich zu stehen:  
+_Duarum Indiae gentium, quae vocantur Techiam et Albarachuma, antiqua consuetudo fuit, nudos et decalvatos, magnisque ululatibus personantes Simulachra Daemonum circumire, angulos quoque osculari, et projicere lapides in acervum, qui quasi pro honore Diis exstruebatur. Inde est, quod in libro Salomonis dicitur; qui projicit lapidem in honorem Mercurji. Faciebant autem hoc bis in anno, sole scilicet existente in primo gradu Arietis, et rursus, cum esset in primo gradu Librae: hoc est, initio Veris et Autumni. Haec ergo consuetudo cum ab Indis ad Arabes descendisset; eamque suo tempore apud Mecham in honorem Veneris Mahmmed celebrari reperisset; sic illam manere praecepit, cum tamen cetera idololatriae vestigia removisset. IIlud vero soli veneri in illa celebratione dicitur exhiberi solitum, ut lapilli retro, id est, sub genitalibus membris projicerentur, eo quod Venus maxime partibus ilis domiotur. Unde id ahuc odie fit in domo Dei illicita quam vocant._
 
-Dieser Lingam oder Phallus-Dienst war
-jedoch in seinem Ursprunge nicht so unrein und
-obscön als Zoega *) und Friedr. Schlegel*) ihn
-schildern; durch Entartung, besondersEinführnng
-der Bacchischen Orgien mag er es später gemarden
-sein; seinem Ursprunge aber, und dem innes
-ren Sinne der alten Religion gemäß, war diese
-Idee gewißheilig und rein. Denn die Indier,
-(und wie sie alle alten Völker) glaubten: sowohl
-Holz als Stein enthielte das Elementar-
-Feuer, und mit ihm das Zeugungs-Prin-
-cip. Die Sonne nebst den. übrigen Sternen
-seien Steine. Im Steine ließen sie die Gott-
-heit wohnen, und sich in Stein verwandeln. -
-So Krischna am Ende seines Lebens, nach der
-griechischen Tradition der Stein des Chronos, den
-in Windeln gelegt, Rhea ihrem Gemahl statd
-des verfolgten Zeus zu verschlingen gibt. *)
-Pausanins traf ihn noch im Tempel, und er ist-
-offenbar ein Bild der Zeit, so Niobe mit ihren
-12 Monat-Kindern; des Sisiphus Rad; der
-Mythos des aus Steinen Menschen schaffenden
-Deukalinns s. f.. Der-Ste-Cultus schien
-demnach nicht sowohl aus einem vohen Fetischis-
-mus, wie Zoega meint, ansgegangen zu sehn,
-als: eine durch Verwilderung der in der
-frühesten Zeit aus dem Ursitze des
-Menschengeschlechts in verschiedend
-Weltgegenden auswandernden Stäm-
-me entstandene Ausartung der ur-
-sprünglich reinen. Idee, welche die
-arste Natur . Religion unter diesen
-Symbole verstand.
+Dieser Lingam oder Phallus-Dienst war jedoch in seinem Ursprunge nicht so unrein und obscön als Zoega *) und Friedr. Schlegel*) ihn schildern; durch Entartung, besondersEinführnng der Bacchischen Orgien mag er es später gemarden sein; seinem Ursprunge aber, und dem innes ren Sinne der alten Religion gemäß, war diese Idee gewißheilig und rein. Denn die Indier, (und wie sie alle alten Völker) glaubten: sowohl Holz als Stein enthielte das Elementar-Feuer, und mit ihm das Zeugungs-Princip. Die Sonne nebst den. übrigen Sternen seien Steine. Im Steine ließen sie die Gottheit wohnen, und sich in Stein verwandeln. - So Krischna am Ende seines Lebens, nach der griechischen Tradition der Stein des Chronos, den in Windeln gelegt, Rhea ihrem Gemahl statd des verfolgten Zeus zu verschlingen gibt. *) Pausanins traf ihn noch im Tempel, und er istoffenbar ein Bild der Zeit, so Niobe mit ihren 12 Monat-Kindern; des Sisiphus Rad; der Mythos des aus Steinen Menschen schaffenden Deukalinns s. f.. Der-Ste-Cultus schien demnach nicht sowohl aus einem vohen Fetischismus, wie Zoega meint, ansgegangen zu sehn, als: eine durch Verwilderung der in der frühesten Zeit aus dem Ursitze des Menschengeschlechts in verschiedend Weltgegenden auswandernden Stämme entstandene Ausartung der ursprünglich reinen. Idee, welche die arste Natur . Religion unter diesen Symbole verstand.
 
 *) De orig. et usu obelisc.
 
 *) Von der Weisheit der Indier.
 
-*) S. das Titelkupfer nach einer antiken Ara im
-Museo Capitolino.
+*) S. das Titelkupfer nach einer antiken Ara im Museo Capitolino.
 
 Von der ursprünglichen Deutung des Steins
 auf Zeit kommen die Mahl- oder sogenannten
