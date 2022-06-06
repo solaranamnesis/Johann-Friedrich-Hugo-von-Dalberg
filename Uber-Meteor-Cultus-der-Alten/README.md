@@ -1,4 +1,4 @@
-## Ueber Meteor-Cultus der Alten, vorzüglich in Bezug auf Steine, die vom Himmel gefallen.
+## Über Meteor-Cultus der Alten, vorzüglich in Bezug auf Steine, die vom Himmel gefallen.
 
 Made with help from OCR4all:
 
