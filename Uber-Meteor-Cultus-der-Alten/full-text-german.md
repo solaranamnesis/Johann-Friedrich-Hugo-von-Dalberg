@@ -899,8 +899,6 @@ Durch die in dieser Abhandlung angeführte Beyspiele ergiebt sich der Ursprung s
 
 Der Glaube an das Wunderbare, und der Hang, für unsere Bedürfnisse, unsere Leiden Zuflacht und Hütfe bey übeirrdischen Krästen zu suchen, ist im menschlichen Gemüthe eben so unauslöschlich, als die Neigung, jedes Ereigniß höheren Mächten zuzueignen, und dem Himmel entsteigen zu lassen.
 
-...
-
 ## Verzeichniss der Abbildungen.
 
 [Fig. 1.](https://cdn.solaranamnesis.com/vonDalberg/Fig1.png) - Titelkupfer. Rhea, die ihrem Gemahle dem Saturn den in Windeln gelegten Stein, statt des verfolgten Jupiters, zu verschlingen giebt. - Nach einer antiken _Ara_ aus dem _Mus. capitol_.
