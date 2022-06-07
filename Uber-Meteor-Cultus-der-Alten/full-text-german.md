@@ -299,7 +299,7 @@ Aber früher noch, als diese Epoche, wurden heilige Steine, Διιπετρα, ve
 *) Man erinnere sich hierbei, dass Astarte oder Alilat die Göttin war, die nach Herodot B. III. K. S. die Araber unter dem Bild eines Steines verehrten.
 
 *) Ille enim Phoebus Apollo lapidem vocalem habendum Sideriten verum dedit, quem hominibus aliis placuit vocare anima carentem Ophiten funestum, subasperum, durum, nigrum, spissum circa ipsum vero circulo ab omni parte undique fibrae rugis similes, insculptae extenduntur.  
-Orph. … v. 16-21.  
+Orph. λιθιχα v. 16-21.  
 Edit. Gesneri. Lipsiae 1764.
 
 *) S. Falconnet sur les Baetylos in den Mem. de l'acad. des Inscr. T. VI. p. 514.
