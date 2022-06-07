@@ -237,7 +237,7 @@ Bemerkenswert ist die Analogie dieses mexikanischen Stein-Gottes mit dem Alagaba
 
 *) Nat. Gesch. Buch XVI. Kap. 77.
 
-Jedes Volk hatte in der Mitte seines Versammlungsortes einen solchen Stein als Symbol seiner Einheit (rno roe eorn), einen Lokal-Schutzgott. (dsgo ozodecror), und der Gott einen ihm dienenden Priester, nebst einem Hause (das später zum Tempel ward). Mit diesem rohen uralten Fetischismus verband sich frühzeitig ein geheimer Sinn, den die Priester und Mysterien dem Stein als Symbol beilegten,* und indessen das rohe Volk im exoterischen Dienste seinen Fetisch, den rohen Holz- oder Stein-Block vergötterte, deutete die geheimere Einweihung denselben als Darstellung und Symbol einer mächtigen Naturkraft, nämlich als Bild der Zeugung und der sich stets erneuernden Zeit, woher im frühesten Zeitalter der Lingam-Stein entstand, der mit der Tradition durch alle Cultus gehet.*
+Jedes Volk hatte in der Mitte seines Versammlungsortes einen solchen Stein als Symbol seiner Einheit (την πολιν εστηαν), einen Lokal-Schutzgott (Δαιμον οιχοδεσποτην), und der Gott einen ihm dienenden Priester, nebst einem Hause (das später zum Tempel ward). Mit diesem rohen uralten Fetischismus verband sich frühzeitig ein geheimer Sinn, den die Priester und Mysterien dem Stein als Symbol beilegten,* und indessen das rohe Volk im exoterischen Dienste seinen Fetisch, den rohen Holz- oder Stein-Block vergötterte, deutete die geheimere Einweihung denselben als Darstellung und Symbol einer mächtigen Naturkraft, nämlich als Bild der Zeugung und der sich stets erneuernden Zeit, woher im frühesten Zeitalter der Lingam-Stein entstand, der mit der Tradition durch alle Cultus gehet.*
 
 *) Kap. XIX.
 
@@ -260,7 +260,7 @@ Dieser Lingam oder Phallus-Dienst war jedoch in seinem Ursprunge nicht so unrein
 
 *) S. das Titelkupfer nach einer antiken Ara im Museo Capitolino.
 
-Von der ursprünglichen Deutung des Steins auf Zeit kommen die Mahl- oder sogenannten Rechensteine; im Hermes (von dem alle Zeitrechnung kam) wurden sie in ganzen Haufen zusammengelesen, die souses ober eousoo eioshießen,* der Cultus vergaß den Ursprung der. heiligen Sitte, und jeder Wanderer legte zu dem Haufen noch einen neuen Stein. In Arabien erhielt sich die Sitte lange nach Muhameds Zeiten und die Geschichte der Erzväter erwähnt diesen Gebrauch. Dahin können wir auch die 360 Steinegefäße der ägyptischen Priester auf der Nil Insel nächst Philoe rechnen, mittelst welchen sie, indem sie selbe bei jedesmaligen Wiederbeginnen des bürgerlichen Jahres anfüllten, die Zeit- oder Zahl ihrer Jahrestage anzeigten.
+Von der ursprünglichen Deutung des Steins auf Zeit kommen die Mahl- oder sogenannten Rechensteine; im Hermes (von dem alle Zeitrechnung kam) wurden sie in ganzen Haufen zusammengelesen, die ερμαχες ober ερμειοι φιλοι hießen,* der Cultus vergaß den Ursprung der. heiligen Sitte, und jeder Wanderer legte zu dem Haufen noch einen neuen Stein. In Arabien erhielt sich die Sitte lange nach Muhameds Zeiten und die Geschichte der Erzväter erwähnt diesen Gebrauch. Dahin können wir auch die 360 Steinegefäße der ägyptischen Priester auf der Nil Insel nächst Philoe rechnen, mittelst welchen sie, indem sie selbe bei jedesmaligen Wiederbeginnen des bürgerlichen Jahres anfüllten, die Zeit- oder Zahl ihrer Jahrestage anzeigten.
 
 *) Kanne allgemeine Mythologie.
 
