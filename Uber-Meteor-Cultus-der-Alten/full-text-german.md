@@ -264,7 +264,7 @@ Von der ursprünglichen Deutung des Steins auf Zeit kommen die Mahl- oder sogena
 
 *) Kanne allgemeine Mythologie.
 
-Bündnis, Verträge und Eide wurden daher stets an solchen Steinen geheiligt. So hatte der Libanon einen Hügel, der wie Jacobs Steins hause … Gilead hieß. Dem Ursprung den Sitten, bei Steinen zu schwören, deutet selbst die Wurzel der Sprache an. So heißt: … häufen, und … ein harter Stein. … und Zeugnis geben, … Zeuge, welches in der Grundbedeutung Zeit, Zeugung und Feuer heißte und in der Zusammensetzung Gilead … sowohl. Steinhaufe des Zeugnisses, als der Zeit bedeutet.
+Bündnis, Verträge und Eide wurden daher stets an solchen Steinen geheiligt. So hatte der Libanon einen Hügel, der wie Jacobs Steinhause גלעד Gilead hieß. Dem Ursprung den Sitten, bei Steinen zu schwören, deutet selbst die Wurzel der Sprache an. So heißt: עבדי häufen, und עבד ein harter Stein. עיד und Zeugnis geben, עד Zeuge, welches in der Grundbedeutung Zeit, Zeugung und Feuer heißte und in der Zusammensetzung Gilead גלעד sowohl. Steinhaufe des Zeugnisses, als der Zeit bedeutet.
 
 *) S. Phamenophis. S. 96.
 
