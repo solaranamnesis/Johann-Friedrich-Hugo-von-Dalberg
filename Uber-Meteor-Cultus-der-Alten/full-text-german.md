@@ -552,11 +552,11 @@ Hand des Hefästos:
 Also zerschmolz auch die Erd' in stralender Lohe
 des Feners."
 
-So reichen Physik und Fabel sich die Hand; und wie letztere im Mythos das Bild der Entstehung der Wesen durch Gärung und Verbindung der Elemente zeigt, so sagt der älteste uns bekannte Mineraloge schon: "die Anhäufung (Bildung) der Steine wird teils durch Hitze, teils durch Kälte bewirkt, auch können einige durch beide entstehen, überhaupt scheinen die Erdarten durch Feuer zu erhärten. Übrigens werden alle Mineralien durch jene entgegengesetzten Kräfte bald gebildet, bald aufgelößt.*
+So reichen Physik und Fabel sich die Hand; und wie letztere im Mythos das Bild der Entstehung der Wesen durch Gärung und Verbindung der Elemente zeigt, so sagt der älteste uns bekannte Mineraloge schon: "die Anhäufung (Bildung) der Steine wird teils durch Hitze, teils durch Kälte bewirkt, auch können einige durch beide entstehen, überhaupt scheinen die Erdarten durch Feuer zu erhärten. Übrigens werden alle Mineralien durch jene entgegengesetzten Kräfte bald gebildet, bald aufgelößt.*"
 
 Dass diesem großen Naturkenner das Gesetz der Kristallisation nicht unbekannt geblieben, zeigt folgende Stelle:*
 
-*) Theophrast von den Steinen, §. 3. Sein deutscher Übersetzer, D. Schmieder, bemerkt dabei der Gedanke ist gut chemisch, nur wird er durch Mangel der Kunstwörter entstellt; genau genommen gibt es wirklich keine andere Umbildungskräfte fürs Mineralwich, als Hitz. und Kälke.
+*) Theophrast von den Steinen, §. 3. Sein deutscher Übersetzer, D. Schmieder, bemerkt dabei der Gedanke ist gut chemisch, nur wird er durch Mangel der Kunstwörter entstellt; genau genommen gibt es wirklich keine andere Umbildungskräfte fürs Mineralwich, als Hitz. und Kälke. Alle nasse Auflösungen, Schmelzungen, Verflüchtigungen, Verwitterungen haben doch nur Ortsänderungen des warmen Stoffs zum Grunde.
 
 *) Schade, dass sein größeres Werk von den Metallen verloren gegangen.
 
