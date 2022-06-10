@@ -348,7 +348,7 @@ Jener Jacobs-Stein, der wahrscheinlich doch nicht mehr wog, als die 14 Zentner s
 
 Wie nun diese Steinmasse als Symbol einer Gottheit auf den Spitzen des Libanon stand, so verehrte man östlich an Indiens Grenzen zu. Nepal* (unfern Benares) den schwarzen Stein als Bild des Mahadeo (den Gott der Liebe und Zeugung), auch in Cachemir verehrte man einen vom Himmel gefallenen Stein, einen anderen als Lingam in der Pagode von Perwuttum; so wie westwärts in Griechenland den viereckigten schwarzen Stein Saturns, der zu Pausanias Zeiten noch im Apollo-Tempel zu Delphos bewahrt,* täglich mit Oel bestrichen und roher Wolle umwickelt wurde. Dahin kann man gleichfalls jenen Stein von Pessinunt zählen, welcher der Cybele heilig war, und im zweiten punischen Krieg nach Rom gebracht wurbe.
 
-*) In Dappers Asia steht p. 111 nach Della Valles Beschreibung eine treue Abbildung des Mahadeva (oder Gott der Zeugung) als Lingam. S. ferner Account of the Kingdom of Nepal im 2. Th. der Asiatik Researches, 8te Ausgabe S. 307, von einem im nördlichen Europa niedergefallenen Aerolithen liefert Bartholin eine Beschreibung in ist. Anatom. Centur. IIl. et IV. p. 337.
+*) In Dappers Asia steht p. 111 nach Dèlla Vallès Beschreibung eine treue Abbildung des Mahadeva (oder Gott der Zeugung) als Lingam. S. ferner Account of the Kingdom of Nepal im 2. Th. der Asiatik Researches, 8te Ausgabe S. 307, von einem im nördlichen Europa niedergefallenen Aerolithen liefert Bartholin eine Beschreibung in ist. Anatom. Centur. IIl. et IV. p. 337.
 
 Es zeigten sich (sagt Appian vom Hannibalischen Kriege, Kap. 56.) zu jener Zeit zu Rom schreckliche Wunderzeichen am Himmel, weswegen die zehn Männer die Sibyllinischen Bücher nachschlagen mussten, und aus denselben antworteten:
 
