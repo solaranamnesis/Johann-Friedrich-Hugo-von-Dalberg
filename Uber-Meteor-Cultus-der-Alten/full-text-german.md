@@ -221,7 +221,7 @@ Wie man nun glaubte,* dass diese Mittelwesen der Planeten Gestirnen und Elemente
 
 Eine 3te Ursache der Verehrung, die man sogenannten heiligen Steinen bezeigte, ist in dem Gebrauch und der Anwendung, den man von denselben zu öffentlichen Denkmalen und Merkzeichen machte, gegründet. Bevor wir nun zur näheren Bettachtung der Aerolithen-Verehrung übergehen, wird es nicht überflüssig sein, einen näheren Bück auf. Entstehung des Stein-Cultus überhaupt zu werfen.
 
-*) _Les orientaux croyoient, que les Anges sont des Esprits ignées, opinion, qui passa depuis chez les Chretiens, et qui, si je neme trompe, s'etoit communiquee aux juifs longtems auparavant. Beausobre Hist. du Manicheisme. T. I. p. 323._
+*) _Les orientaux croyoient, que les Anges sont des Esprits ignées, opinion, qui passa depuis chez les Chrètiens, et qui, si je neme trompe, s'étoit communiquée aux juifs longtems auparavant. Beausobre Hist. du Manichéisme. T. I. p. 323._
 
 In jenem Weltalter, wo Sinnbilder, Schriftzüge, Buchstaben noch nicht erfunden waren, und rohe Menschen keine anderen als gleichfalls rohe Werkzeuge hatten, ihre Ideen aufzuzeichnen, mussten Steine als Merkzeichen vorzüglicher Ereignisse, die zugleich als Vereinigungspunkt bei feierlichen Handlungen und Verträgen, oder als Grenzbezeichnungen dienen konnten, eine Achtung gewinnen, die allmählich bis zur Vergötterung erhöht ward, und durch den geheimen Sinn, den spätere Mysterien, Priester, Hierophanten diesen Gegenständen beilegten, eine noch höhere Verehrung erhalten.
 
@@ -750,7 +750,7 @@ Mehrere Altertumsforscher* haben die gnostischen Valentinianer und Basilidianer 
 
 *) Unter andern Montfancon ant. expliquée T. II. art. 3. der zu den Abbildungen in Chifflet-Traktat on Talismanen und Abraxas noch viele andre gesammelt hat.
 
-*) Man lese hierüber die Quellen im Zend-Avesta Upnekhat, und was Kleuker darüber gesammelt hat' im kl. Teil seines deutschen Zend-Avesta an mehreren Stellen. Auch Beausobre Hist. crit. du Manicheisme in mehreren Stellen.
+*) Man lese hierüber die Quellen im Zend-Avesta Upnekhat, und was Kleuker darüber gesammelt hat' im kl. Teil seines deutschen Zend-Avesta an mehreren Stellen. Auch Beausobre Hist. crit. du Manichéisme in mehreren Stellen.
 
 *) Von älteren und späteren ägyptischen Talismanen s. Kircheri Oedipus T. II. p. 459.
 
