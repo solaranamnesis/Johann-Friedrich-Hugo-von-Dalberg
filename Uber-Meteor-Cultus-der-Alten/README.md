@@ -7,4 +7,4 @@ Made with help from OCR4all:
 English - Plain Text  
 English - PDF  
 [German - Plain Text](full-text-german.md)  
-[German - PDF](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german.pdf) | Fraktur | Schwabacher  
+[German - PDF](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german.pdf) | [Fraktur](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-frak.pdf) | [Schwabacher](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-swab.pdf)  
