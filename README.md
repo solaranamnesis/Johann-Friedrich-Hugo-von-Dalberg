@@ -10,4 +10,4 @@ Made with help from OCR4all:
 English - Plain Text  
 English - PDF  
 [German - Plain Text](Uber-Meteor-Cultus-der-Alten/full-text-german.md)  
-German - PDF  
+[German - PDF](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german.pdf)  
