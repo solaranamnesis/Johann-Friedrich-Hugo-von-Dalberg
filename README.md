@@ -10,4 +10,4 @@ Made with help from OCR4all:
 English - Plain Text  
 English - PDF  
 [German - Plain Text](Uber-Meteor-Cultus-der-Alten/full-text-german.md)  
-[German - PDF](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german.pdf) | [Biolinum](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-biolinum.pdf) | [Fraktur](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-frak.pdf) | [Schwabacher](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-swab.pdf)  
+[German - PDF](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german.pdf) | [Biolinum](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-biolinum.pdf) | [Fraktur](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-frak.pdf) | [Schwabacher](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-swab.pdf) | [DnD](https://cdn.solaranamnesis.com/vonDalberg/dalberg_cultus_der_alten_german-dndcustom.pdf)  
