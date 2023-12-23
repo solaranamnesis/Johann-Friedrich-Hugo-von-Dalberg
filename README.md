@@ -1,5 +1,6 @@
-# Johann-Friedrich-Hugo-von-Dalberg
-Public Domain works of Johann Friedrich Hugo von Dalberg (1760 - 1812)
+# Johann Friedrich Hugo von Dalberg.
+
+Public Domain works of Johann Friedrich Hugo von Dalberg (1760 - 1812).
 
 ## Über Meteor-Cultus der Alten, vorzüglich in Bezug auf Steine, die vom Himmel gefallen.
 
