@@ -55,6 +55,11 @@
 \pagestyle{plain} % after changing a pagestyle command, it's necessary to invoke it explicitly
 \uishape
 \AddToShipoutPictureBG{\includegraphics[width=\paperwidth,height=\paperheight]{claudia.jpeg}}
+
+\renewcommand{\thefigure}{\uishape{\arabic{figure}}}
+\renewcommand\thefootnote{\uishape{\arabic{footnote}}}
+\let\oldfootnote\footnote
+    \renewcommand{\footnote}[1]{\oldfootnote{\uishape#1}}
 \begin{titlepage} % Suppresses headers and footers on the title page
 	\centering % Centre everything on the title page
 	%\scshape % Use small caps for all text on the title page
