@@ -692,7 +692,7 @@ Unter den ersten (Feuer gebenden) ist vorzüglich der Schwefelkies, Markasit, zu
 
 *) Ignem e silice Pyrodes cilicis filius, eundem adservare in ferula Prometheus monstravit. Hist. nat.
 
-2\. Hi exploratoribus castrorum maxime necessarü, qui clavo vel altero lapide percussi, scintillas edunt, quae exceptae sulphure aut fungis aridis, vel foliis, dicto celerius ignem trahunt.
+*) Hi exploratoribus castrorum maxime necessaro, qui clavo vel altero lapide percussi, scintillas edunt, quae exceptae sulphure aut fungis aridis, vel foliis, dicto celerius ignem trahunt.
 
 Dieses Fossils (das erst nach Erfindung des Schießpulvers und des Feuergewehrs seine wahre Anwendung erhielt*), bediente man sich in älteren Zeiten auch als schneidenden Instruments zu Opfer-Messern und Streit-Äxten; man findet dergleichen häufig noch in Grabmählern.* Überhaupt gebrauchte man alle kieselartigen Steine zum häuslichen und religiösen Dienste. Jener Pessinuntische, von dem es immer noch zweifelhaft bleibt, ob er ein Aerolithe gewesen, war vielleicht von dieser Gattung, denn bestimmt wird er _religiosa Silex_ genannt; und warum gab man den Sand, Kalch, Kreide oder Seifenartigen Steinen nicht diesen Nahmen? mir deucht eben, weil sie in Hinsicht des Feuers zu religiösem Zwecke nicht so brauchbar als jene waren.
 
